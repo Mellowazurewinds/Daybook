@@ -67,4 +67,3 @@ python -m compileall -q daybook tests
 ```
 
 The regression checks cover date windows, sparse-data wording, summary aggregation, input validation, and SQLite add/edit/delete behavior. They use temporary databases and do not need third-party packages.
-
