@@ -1,4 +1,89 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éíßMtN‹Z–‹­¦ëeŠw¬Ôˆˆ‰Ù¥‘•¹”µ±•ÍÕµµ…É¥•Ì…¹Á…ÑÑ•É¸ÍÕ•ÍÑ¥½¹Ì™½È±½•…Ñ¥Ù¥Ñä¸ˆˆˆ()™É½´}}™ÕÑÕÉ•}|¥µÁ½ÉÐ…¹¹½Ñ…Ñ¥½¹Ì()™É½´½±±•Ñ¥½¹Ì¥µÁ½ÉÐ½Õ¹Ñ•È°‘•™…Õ±Ñ‘¥Ð)™É½´‘…Ñ•Ñ¥µ”¥µÁ½ÉÐ‘…Ñ”°Ñ¥µ•‘•±Ñ„)™É½´ÑåÁ¥¹œ¥µÁ½ÉÐ¹ä(()‘•˜Á•É¥½‘}‰½Õ¹‘Ì¡Á•É¥½èÍÑÈ°Í•±•Ñ•è‘…Ñ”¤€´øÑÕÁ±•m‘…Ñ”°‘…Ñ”°‘…Ñ”°‘…Ñ•tè(€€€¥˜Á•É¥½€ôô€‰‘…äˆè(€€€€€€€ÍÑ…ÉÐ€ô•¹€ôÍ•±•Ñ•(€€€€€€€ÁÉ•Ù¥½ÕÍ}ÍÑ…ÉÐ€ôÁÉ•Ù¥½ÕÍ}•¹€ôÍ•±•Ñ•€´Ñ¥µ•‘•±Ñ„¡‘…åÌôÄ¤(€€€•±¥˜Á•É¥½€ôô€‰Ý••¬ˆè(€€€€€€€ÍÑ…ÉÐ€ôÍ•±•Ñ•€´Ñ¥µ•‘•±Ñ„¡‘…åÌõÍ•±•Ñ•¹Ý••­‘…ä ¤¤(€€€€€€€•¹€ôÍÑ…ÉÐ€¬Ñ¥µ•‘•±Ñ„¡‘…åÌôØ¤(€€€€€€€ÁÉ•Ù¥½ÕÍ}ÍÑ…ÉÐ€ôÍÑ…ÉÐ€´Ñ¥µ•‘•±Ñ„¡‘…åÌôÜ¤(€€€€€€€ÁÉ•Ù¥½ÕÍ}•¹€ô•¹€´Ñ¥µ•‘•±Ñ„¡‘…åÌôÜ¤(€€€•±¥˜Á•É¥½€ôô€‰µ½¹Ñ ˆè(€€€€€€€ÍÑ…ÉÐ€ôÍ•±•Ñ•¹É•Á±…”¡‘…äôÄ¤(€€€€€€€¹•áÑ}µ½¹Ñ €ô€¡ÍÑ…ÉÐ¹É•Á±…”¡‘…äôÈà¤€¬Ñ¥µ•‘•±Ñ„¡‘…åÌôÐ¤¤¹É•Á±…”¡‘…äôÄ¤(€€€€€€€•¹€ô¹•áÑ}µ½¹Ñ €´Ñ¥µ•‘•±Ñ„¡‘…åÌôÄ¤(€€€€€€€ÁÉ•Ù¥½ÕÍ}•¹€ôÍÑ…ÉÐ€´Ñ¥µ•‘•±Ñ„¡‘…åÌôÄ¤(€€€€€€€ÁÉ•Ù¥½ÕÍ}ÍÑ…ÉÐ€ôÁÉ•Ù¥½ÕÍ}•¹¹É•Á±…”¡‘…äôÄ¤(€€€•±¥˜Á•É¥½€ôô€‰å•…Èˆè(€€€€€€€ÍÑ…ÉÐ€ôÍ•±•Ñ•¹É•Á±…”¡µ½¹Ñ ôÄ°‘…äôÄ¤(€€€€€€€•¹€ôÍ•±•Ñ•¹É•Á±…”¡µ½¹Ñ ôÄÈ°‘…äôÌÄ¤(€€€€€€€ÁÉ•Ù¥½ÕÍ}ÍÑ…ÉÐ€ôÍÑ…ÉÐ¹É•Á±…”¡å•…ÈõÍÑ…ÉÐ¹å•…È€´€Ä¤(€€€€€€€ÁÉ•Ù¥½ÕÍ}•¹€ô•¹¹É•Á±…”¡å•…Èõ•¹¹å•…È€´€Ä¤(€€€•±Í”è(€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰A•É¥½µÕÍÐ‰”‘…ä°Ý••¬°µ½¹Ñ °½Èå•…È¸ˆ¤(€€€É•ÑÕÉ¸ÍÑ…ÉÐ°•¹°ÁÉ•Ù¥½ÕÍ}ÍÑ…ÉÐ°ÁÉ•Ù¥½ÕÍ}•¹(()‘•˜}ÍÑ…ÑÌ¡•¹ÑÉ¥•Ìè±¥ÍÑm‘¥ÑmÍÑÈ°¹åut¤€´ø‘¥ÑmÍÑÈ°¹åtè(€€€…Ñ•½É¥•Ìè½Õ¹Ñ•ÉmÍÑÉt€ô½Õ¹Ñ•È ¤(€€€‘…åÌèÍ•ÑmÍÑÉt€ôÍ•Ð ¤(€€€•¹•Éå}Ù…±Õ•Ìè±¥ÍÑm¥¹Ñt€ômt(€€€½ÕÑ½µ•Ìè½Õ¹Ñ•ÉmÍÑÉt€ô½Õ¹Ñ•È ¤(€€€™½È•¹ÑÉä¥¸•¹ÑÉ¥•Ìè(€€€€€€€…Ñ•½É¥•Ím•¹ÑÉål‰…Ñ•½Éä‰ut€¬ô¥¹Ð¡•¹ÑÉål‰µ¥¹ÕÑ•Ì‰t¤(€€€€€€€‘…åÌ¹…‘¡•¹ÑÉål‰‘…ä‰t¤(€€€€€€€½ÕÑ½µ•Ím•¹ÑÉä¹•Ð ‰½ÕÑ½µ”ˆ°€‰ÁÉ½É•ÍÌˆ¥t€¬ô€Ä(€€€€€€€¥˜•¹ÑÉål‰•¹•Éä‰t¥Ì¹½Ð9½¹”è(€€€€€€€€€€€•¹•Éå}Ù…±Õ•Ì¹…ÁÁ•¹¡¥¹Ð¡•¹ÑÉål‰•¹•Éä‰t¤¤(€€€É•ÑÕÉ¸ì(€€€€€€€€‰…Ñ¥Ù¥Ñ¥•Ìˆè±•¸¡•¹ÑÉ¥•Ì¤°(€€€€€€€€‰µ¥¹ÕÑ•ÌˆèÍÕ´¡¥¹Ð¡•¹ÑÉål‰µ¥¹ÕÑ•Ì‰t¤™½È•¹ÑÉä¥¸•¹ÑÉ¥•Ì¤°(€€€€€€€€‰…Ñ¥Ù•}‘…åÌˆè±•¸¡‘…åÌ¤°(€€€€€€€€‰½µÁ±•Ñ•ˆè½ÕÑ½µ•Íl‰½µÁ±•Ñ•‰t°(€€€€€€€€‰ÁÉ½É•ÍÌˆè½ÕÑ½µ•Íl‰ÁÉ½É•ÍÌ‰t°(€€€€€€€€‰½¹½¥¹œˆè½ÕÑ½µ•Íl‰½¹½¥¹œ‰t°(€€€€€€€€‰É•ÍÐˆè½ÕÑ½µ•Íl‰É•ÍÐ‰t°(€€€€€€€€‰…Ñ•½É¥•Ìˆè‘¥Ð¡…Ñ•½É¥•Ì¹µ½ÍÑ}½µµ½¸ ¤¤°(€€€€€€€€‰…Ù•É…•}•¹•ÉäˆèÉ½Õ¹¡ÍÕ´¡•¹•Éå}Ù…±Õ•Ì¤€¼±•¸¡•¹•Éå}Ù…±Õ•Ì¤°€Ä¤¥˜•¹•Éå}Ù…±Õ•Ì•±Í”9½¹”°(€€€ô(()‘•˜}¡½ÕÉÍ}±…‰•°¡µ¥¹ÕÑ•Ìè¥¹Ð¤€´øÍÑÈè(€€€¡½ÕÉÌ°É•µ…¥¹‘•È€ô‘¥Ùµ½¡µ¥¹ÕÑ•Ì°€ØÀ¤(€€€¥˜¡½ÕÉÌ…¹É•µ…¥¹‘•Èè(€€€€€€€É•ÑÕÉ¸˜‰í¡½ÕÉÍõ íÉ•µ…¥¹‘•Éõ´ˆ(€€€¥˜¡½ÕÉÌè(€€€€€€€É•ÑÕÉ¸˜‰í¡½ÕÉÍõ ˆ(€€€É•ÑÕÉ¸˜‰íÉ•µ…¥¹‘•Éõ´ˆ(()‘•˜‰Õ¥±‘}ÍÕµµ…Éä¡Á•É¥½èÍÑÈ°Í•±•Ñ•è‘…Ñ”°ÕÉÉ•¹Ðè±¥ÍÑm‘¥ÑmÍÑÈ°¹åut°ÁÉ•Ù¥½ÕÌè±¥ÍÑm‘¥ÑmÍÑÈ°¹åut°½…±Ìè±¥ÍÑm‘¥ÑmÍÑÈ°¹åut¤€´ø‘¥ÑmÍÑÈ°¹åtè(€€€ÍÑ…ÉÐ°•¹°ÁÉ•Ù¥½ÕÍ}ÍÑ…ÉÐ°ÁÉ•Ù¥½ÕÍ}•¹€ôÁ•É¥½‘}‰½Õ¹‘Ì¡Á•É¥½°Í•±•Ñ•¤(€€€ÕÉÉ•¹Ñ}ÍÑ…ÑÌ€ô}ÍÑ…ÑÌ¡ÕÉÉ•¹Ð¤(€€€ÁÉ•Ù¥½ÕÍ}ÍÑ…ÑÌ€ô}ÍÑ…ÑÌ¡ÁÉ•Ù¥½ÕÌ¤(€€€±…‰•°€ôì‰‘…äˆè€‰…¥±äˆ°€‰Ý••¬ˆè€‰]••­±äˆ°€‰µ½¹Ñ ˆè€‰5½¹Ñ¡±äˆ°€‰å•…Èˆè€‰e•…É±ä‰õmÁ•É¥½‘t(€€€ÍÕ•ÍÑ¥½¹Ìè±¥ÍÑm‘¥ÑmÍÑÈ°ÍÑÉut€ômt(€€€•¹½Õ¡}Á…ÑÑ•É¹}‘…Ñ„€ôÕÉÉ•¹Ñ}ÍÑ…ÑÍl‰…Ñ¥Ù•}‘…åÌ‰t€øô€ Ä¥˜Á•É¥½€ôô€‰‘…äˆ•±Í”€Ì¤…¹ÕÉÉ•¹Ñ}ÍÑ…ÑÍl‰…Ñ¥Ù¥Ñ¥•Ì‰t€øô€ Ä¥˜Á•É¥½€ôô€‰‘…äˆ•±Í”€Ô¤((€€€¥˜¹½ÐÕÉÉ•¹Ðè(€€€€€€€½¹±ÕÍ¥½¸€ô€‰9¼…Ñ¥Ù¥Ñ¥•Ì…É”±½•™½ÈÑ¡¥ÌÁ•É¥½°Í¼Ñ¡•É”¥Ì¹½Ð•¹½Õ •Ù¥‘•¹”Ñ¼½¹±Õ‘”¡½Ü¥ÐÝ•¹Ð¸Q¡…Ð‘½•Ì¹½Ðµ•…¸å½Ô‘¥¹½Ñ¡¥¹œ¸ˆ(€€€€€€€ÍÕ•ÍÑ¥½¹Ì¹…ÁÁ•¹¡ì‰Ñ¥Ñ±”ˆè€‰MÑ…ÉÐÝ¥Ñ „ÅÕ¥¬±½œˆ°€‰É•…Í½¸ˆè€‰Í¡½ÉÐ¹½Ñ”…‰½ÕÐ½¹”Ñ¡¥¹œå½Ô‘¥¥Ì•¹½Õ Ñ¼‰•¥¸‰Õ¥±‘¥¹œ„É•±¥…‰±”¡¥ÍÑ½Éä¸‰ô¤(€€€•±Í”è(€€€€€€€Ñ½Á}…Ñ•½Éä°Ñ½Á}µ¥¹ÕÑ•Ì€ô¹•áÐ¡¥Ñ•È¡ÕÉÉ•¹Ñ}ÍÑ…ÑÍl‰…Ñ•½É¥•Ì‰t¹¥Ñ•µÌ ¤¤¤(€€€€€€€™½ÕÍ}Í¡…É”€ôÉ½Õ¹¡Ñ½Á}µ¥¹ÕÑ•Ì€¼ÕÉÉ•¹Ñ}ÍÑ…ÑÍl‰µ¥¹ÕÑ•Ì‰t€¨€ÄÀÀ¤¥˜ÕÉÉ•¹Ñ}ÍÑ…ÑÍl‰µ¥¹ÕÑ•Ì‰t•±Í”€À(€€€€€€€¥˜Á•É¥½€ôô€‰‘…äˆè(€€€€€€€€€€€½¹±ÕÍ¥½¸€ô˜‰e½Ô±½•íÕÉÉ•¹Ñ}ÍÑ…ÑÍl…Ñ¥Ù¥Ñ¥•Ìuôì …Ñ¥Ù¥Ñäœ¥˜ÕÉÉ•¹Ñ}ÍÑ…ÑÍl…Ñ¥Ù¥Ñ¥•Ìt€ôô€Ä•±Í”€…Ñ¥Ù¥Ñ¥•Ìœ¥ô…É½ÍÌí±•¸¡ÕÉÉ•¹Ñ}ÍÑ…ÑÍl…Ñ•½É¥•Ìt¥ôì …É•„œ¥˜±•¸¡ÕÉÉ•¹Ñ}ÍÑ…ÑÍl…Ñ•½É¥•Ìt¤€ôô€Ä•±Í”€…É•…Ìœ¥ô™½Èí}¡½ÕÉÍ}±…‰•°¡ÕÉÉ•¹Ñ}ÍÑ…ÑÍlµ¥¹ÕÑ•Ìt¥ô¸e½Ôµ…É­•íÕÉÉ•¹Ñ}ÍÑ…ÑÍl½µÁ±•Ñ•uô½µÁ±•Ñ•…¹íÕÉÉ•¹Ñ}ÍÑ…ÑÍlÁÉ½É•ÍÌuô…ÌÁÉ½É•ÍÌµ…‘”¸íÑ½Á}…Ñ•½ÉåôÝ…Ìå½ÕÈ±…É•ÍÐ±½•…É•„€¡í}¡½ÕÉÍ}±…‰•°¡Ñ½Á}µ¥¹ÕÑ•Ì¥ô¤¸ˆ(€€€€€€€•±Í”è(€€€€€€€€€€€½¹±ÕÍ¥½¸€ô˜‰e½Ô±½•íÕÉÉ•¹Ñ}ÍÑ…ÑÍl…Ñ¥Ù¥Ñ¥•Ìuô…Ñ¥Ù¥Ñ¥•Ì…É½ÍÌíÕÉÉ•¹Ñ}ÍÑ…ÑÍl…Ñ¥Ù•}‘…åÌuô‘…åÌ°Ñ½Ñ…±¥¹œí}¡½ÕÉÍ}±…‰•°¡ÕÉÉ•¹Ñ}ÍÑ…ÑÍlµ¥¹ÕÑ•Ìt¥ô¸e½Ôµ…É­•íÕÉÉ•¹Ñ}ÍÑ…ÑÍl½µÁ±•Ñ•uô½µÁ±•Ñ•…¹íÕÉÉ•¹Ñ}ÍÑ…ÑÍlÁÉ½É•ÍÌuô…ÌÁÉ½É•ÍÌµ…‘”¸íÑ½Á}…Ñ•½ÉåôÑ½½¬Ñ¡”±…É•ÍÐÍ¡…É”½˜ÑÉ…­•Ñ¥µ”€¡í™½ÕÍ}Í¡…É•ô”¤¸ˆ(€€€€€€€€€€€§]-¢G§²ÚîÆ­yÞt_stats["active_days"] < 5:
+"""Evidence-led summaries and pattern suggestions for logged activity."""
+
+from __future__ import annotations
+
+from collections import Counter, defaultdict
+from datetime import date, timedelta
+from typing import Any
+
+
+def period_bounds(period: str, selected: date) -> tuple[date, date, date, date]:
+    if period == "day":
+        start = end = selected
+        previous_start = previous_end = selected - timedelta(days=1)
+    elif period == "week":
+        start = selected - timedelta(days=selected.weekday())
+        end = start + timedelta(days=6)
+        previous_start = start - timedelta(days=7)
+        previous_end = end - timedelta(days=7)
+    elif period == "month":
+        start = selected.replace(day=1)
+        next_month = (start.replace(day=28) + timedelta(days=4)).replace(day=1)
+        end = next_month - timedelta(days=1)
+        previous_end = start - timedelta(days=1)
+        previous_start = previous_end.replace(day=1)
+    elif period == "year":
+        start = selected.replace(month=1, day=1)
+        end = selected.replace(month=12, day=31)
+        previous_start = start.replace(year=start.year - 1)
+        previous_end = end.replace(year=end.year - 1)
+    else:
+        raise ValueError("Period must be day, week, month, or year.")
+    return start, end, previous_start, previous_end
+
+
+def _stats(entries: list[dict[str, Any]]) -> dict[str, Any]:
+    categories: Counter[str] = Counter()
+    days: set[str] = set()
+    energy_values: list[int] = []
+    outcomes: Counter[str] = Counter()
+    for entry in entries:
+        categories[entry["category"]] += int(entry["minutes"])
+        days.add(entry["day"])
+        outcomes[entry.get("outcome", "progress")] += 1
+        if entry["energy"] is not None:
+            energy_values.append(int(entry["energy"]))
+    return {
+        "activities": len(entries),
+        "minutes": sum(int(entry["minutes"]) for entry in entries),
+        "active_days": len(days),
+        "completed": outcomes["completed"],
+        "progress": outcomes["progress"],
+        "ongoing": outcomes["ongoing"],
+        "rest": outcomes["rest"],
+        "categories": dict(categories.most_common()),
+        "average_energy": round(sum(energy_values) / len(energy_values), 1) if energy_values else None,
+    }
+
+
+def _hours_label(minutes: int) -> str:
+    hours, remainder = divmod(minutes, 60)
+    if hours and remainder:
+        return f"{hours}h {remainder}m"
+    if hours:
+        return f"{hours}h"
+    return f"{remainder}m"
+
+
+def build_summary(period: str, selected: date, current: list[dict[str, Any]], previous: list[dict[str, Any]], goals: list[dict[str, Any]]) -> dict[str, Any]:
+    start, end, previous_start, previous_end = period_bounds(period, selected)
+    current_stats = _stats(current)
+    previous_stats = _stats(previous)
+    label = {"day": "Daily", "week": "Weekly", "month": "Monthly", "year": "Yearly"}[period]
+    suggestions: list[dict[str, str]] = []
+    enough_pattern_data = current_stats["active_days"] >= (1 if period == "day" else 3) and current_stats["activities"] >= (1 if period == "day" else 5)
+
+    if not current:
+        conclusion = "No activities are logged for this period, so there is not enough evidence to conclude how it went. That does not mean you did nothing."
+        suggestions.append({"title": "Start with a quick log", "reason": "A short note about one thing you did is enough to begin building a reliable history."})
+    else:
+        top_category, top_minutes = next(iter(current_stats["categories"].items()))
+        focus_share = round(top_minutes / current_stats["minutes"] * 100) if current_stats["minutes"] else 0
+        if period == "day":
+            conclusion = f"You logged {current_stats['activities']} {('activity' if current_stats['activities'] == 1 else 'activities')} across {len(current_stats['categories'])} {('area' if len(current_stats['categories']) == 1 else 'areas')} for {_hours_label(current_stats['minutes'])}. You marked {current_stats['completed']} completed and {current_stats['progress']} as progress made. {top_category} was your largest logged area ({_hours_label(top_minutes)})."
+        else:
+            conclusion = f"You logged {current_stats['activities']} activities across {current_stats['active_days']} days, totaling {_hours_label(current_stats['minutes'])}. You marked {current_stats['completed']} completed and {current_stats['progress']} as progress made. {top_category} took the largest share of tracked time ({focus_share}%)."
+            if period == "week" and current_stats["active_days"] < 5:
                 conclusion += f" Your log covers {current_stats['active_days']} of 7 days; unlogged days are unknown, not assumed to be inactive."
         if current_stats["average_energy"] is not None:
             conclusion += f" Average self-rated energy was {current_stats['average_energy']}/5."

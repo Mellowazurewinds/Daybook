@@ -1,1 +1,226 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éíßŽøN‹Z–‹­¦ëeŠw¬Ôˆˆ‰Mµ…±°‘•Á•¹‘•¹äµ™É•”!QQ@Í•ÉÙ•È™½ÈÑ¡”±½…°…å‰½½¬…ÁÀ¸ˆˆˆ()™É½´}}™ÕÑÕÉ•}|¥µÁ½ÉÐ…¹¹½Ñ…Ñ¥½¹Ì()¥µÁ½ÉÐ©Í½¸)¥µÁ½ÉÐµ¥µ•ÑåÁ•Ì)¥µÁ½ÉÐÉ”)¥µÁ½ÉÐÑ¡É•…‘¥¹œ)¥µÁ½ÉÐÝ•‰‰É½ÝÍ•È)¥µÁ½ÉÐ½Ì)™É½´‘…Ñ•Ñ¥µ”¥µÁ½ÉÐ‘…Ñ”°Ñ¥µ”)™É½´¡ÑÑÀ¹Í•ÉÙ•È¥µÁ½ÉÐ	…Í•!QQAI•ÅÕ•ÍÑ!…¹‘±•È°Q¡É•…‘¥¹!QQAM•ÉÙ•È)™É½´Á…Ñ¡±¥ˆ¥µÁ½ÉÐA…Ñ )™É½´ÕÉ±±¥ˆ¹Á…ÉÍ”¥µÁ½ÉÐÁ…ÉÍ•}ÅÌ°ÕÉ±Á…ÉÍ”()™É½´€¹…¹…±åÑ¥Ì¥µÁ½ÉÐ‰Õ¥±‘}ÍÕµµ…Éä°Á•É¥½‘}‰½Õ¹‘Ì)™É½´€¹ÍÑ½É”¥µÁ½ÉÐMÑ½É”()AA}I==P€ôA…Ñ ¡}}™¥±•}|¤¹Á…É•¹Ð)MQQ%}I==P€ôAA}I==P€¼€‰ÍÑ…Ñ¥Œˆ)MQ=IèMÑ½É”ð9½¹”€ô9½¹”)5a}	=e}	eQL€ô€ÄÈá|ÀÀÀ(()‘•˜•Ñ}ÍÑ½É” ¤€´øMÑ½É”è(€€€±½‰…°MQ=I(€€€¥˜MQ=I¥Ì9½¹”è(€€€€€€€MQ=I€ôMÑ½É” ¤(€€€É•ÑÕÉ¸MQ=I(()±…ÍÌ…å‰½½­!…¹‘±•È¡	…Í•!QQAI•ÅÕ•ÍÑ!…¹‘±•È¤è(€€€Í•ÉÙ•É}Ù•ÉÍ¥½¸€ô€‰…å‰½½¬¼À¸Äˆ((€€€‘•˜‘½}P¡Í•±˜¤€´ø9½¹”è(€€€€€€€Á…ÉÍ•€ôÕÉ±Á…ÉÍ”¡Í•±˜¹Á…Ñ ¤(€€€€€€€ÅÕ•Éä€ôÁ…ÉÍ•}ÅÌ¡Á…ÉÍ•¹ÅÕ•Éä¤(€€€€€€€ÑÉäè(€€€€€€€€€€€¥˜Á…ÉÍ•¹Á…Ñ €ôô€ˆ¼ˆ½ÈÁ…ÉÍ•¹Á…Ñ ¥¸ìˆ½¥¹‘•à¹¡Ñµ°ˆ°€ˆ½…ÁÀ¹©Ìˆ°€ˆ½ÍÑå±•Ì¹ÍÌ‰ôè(€€€€€€€€€€€€€€€Í•±˜¹}Í•ÉÙ•}ÍÑ…Ñ¥Œ ‰¥¹‘•à¹¡Ñµ°ˆ¥˜Á…ÉÍ•¹Á…Ñ €ôô€ˆ¼ˆ•±Í”Á…ÉÍ•¹Á…Ñ ¹±ÍÑÉ¥À ˆ¼ˆ¤¤(€€€€€€€€€€€•±¥˜Á…ÉÍ•¹Á…Ñ €ôô€ˆ½…Á¤½ÍÕµµ…Éäˆè(€€€€€€€€€€€€€€€Á•É¥½€ôÅÕ•Éä¹•Ð ‰Á•É¥½ˆ°l‰‘…ä‰t¥lÁt(€€€€€€€€€€€€€€€Í•±•Ñ•€ô‘…Ñ”¹™É½µ¥Í½™½Éµ…Ð¡ÅÕ•Éä¹•Ð ‰‘…Ñ”ˆ°m‘…Ñ”¹Ñ½‘…ä ¤¹¥Í½™½Éµ…Ð ¥t¥lÁt¤(€€€€€€€€€€€€€€€¥˜Á•É¥½¹½Ð¥¸ì‰‘…äˆ°€‰Ý••¬ˆ°€‰µ½¹Ñ ˆ°€‰å•…È‰ôè(€€€€€€€€€€€€€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰¡½½Í”‘…ä°Ý••¬°µ½¹Ñ °½Èå•…È¸ˆ¤(€€€€€€€€€€€€€€€ÍÑ…ÉÐ°•¹°ÁÉ•Ù¥½ÕÍ}ÍÑ…ÉÐ°ÁÉ•Ù¥½ÕÍ}•¹€ôÁ•É¥½‘}‰½Õ¹‘Ì¡Á•É¥½°Í•±•Ñ•¤(€€€€€€€€€€€€€€€ÍÑ½É”€ô•Ñ}ÍÑ½É” ¤(€€€€€€€€€€€€€€€ÕÉÉ•¹Ð€ôÍÑ½É”¹±¥ÍÑ}…Ñ¥Ù¥Ñ¥•Ì¡ÍÑ…ÉÐ¹¥Í½™½Éµ…Ð ¤°•¹¹¥Í½™½Éµ…Ð ¤¤(€€€€€€€€€€€€€€€ÁÉ•Ù¥½ÕÌ€ôÍÑ½É”¹±¥ÍÑ}…Ñ¥Ù¥Ñ¥•Ì¡ÁÉ•Ù¥½ÕÍ}ÍÑ…ÉÐ¹¥Í½™½Éµ…Ð ¤°ÁÉ•Ù¥½ÕÍ}•¹¹¥Í½™½Éµ…Ð ¤¤(€€€€€€€€€€€€€€€ÍÕµµ…Éä€ô‰Õ¥±‘}ÍÕµµ…Éä¡Á•É¥½°Í•±•Ñ•°ÕÉÉ•¹Ð°ÁÉ•Ù¥½ÕÌ°ÍÑ½É”¹±¥ÍÑ}½…±Ì ¤¤(€€€€€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ÍÕµµ…Éä¤(€€€€€€€€€€€•±¥˜Á…ÉÍ•¹Á…Ñ €ôô€ˆ½…Á¤½•¹ÑÉ¥•Ìˆè(€€€€€€€€€€€€€€€ÍÑ…ÉÐ€ôÅÕ•Éä¹•Ð ‰™É½´ˆ°l¡‘…Ñ”¹Ñ½‘…ä ¤¹É•Á±…”¡‘…äôÄ¤¤¹¥Í½™½Éµ…Ð ¥t¥lÁt(€€€€€€€€€€€€€€€•¹€ôÅÕ•Éä¹•Ð ‰Ñ¼ˆ°m‘…Ñ”¹Ñ½‘…ä ¤¹¥Í½™½Éµ…Ð ¥t¥lÁt(€€€€€€€€€€€€€€€‘…Ñ”¹™É½µ¥Í½™½Éµ…Ð¡ÍÑ…ÉÐ¤(€€€€€€€€€€€€€€€‘…Ñ”¹™É½µ¥Í½™½Éµ…Ð¡•¹¤(€€€€€€€€€€€€€€€ÍÑ½É”€ô•Ñ}ÍÑ½É” ¤(€€€€€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì‰•¹ÑÉ¥•ÌˆèÍÑ½É”¹±¥ÍÑ}…Ñ¥Ù¥Ñ¥•Ì¡ÍÑ…ÉÐ°•¹¥ô¤(€€€€€€€€€€€•±¥˜Á…ÉÍ•¹Á…Ñ €ôô€ˆ½…Á¤½½…±Ìˆè(€€€€€€€€€€€€€€€ÍÑ½É”€ô•Ñ}ÍÑ½É” ¤(€€€€€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì‰½…±ÌˆèÍÑ½É”¹±¥ÍÑ}½…±Ì ¥ô¤(€€€€€€€€€€€•±¥˜Á…ÉÍ•¹Á…Ñ €ôô€ˆ½…Á¤½•áÁ½ÉÐˆè(€€€€€€€€€€€€€€€ÍÑ½É”€ô•Ñ}ÍÑ½É” ¤(€€€€€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì(€€€€€€€€€€€€€€€€€€€€‰™½Éµ…Ñ}Ù•ÉÍ¥½¸ˆè€Ä°(€€€€€€€€€€€€€€€€€€€€‰•áÁ½ÉÑ•‘}½¸ˆè‘…Ñ”¹Ñ½‘…ä ¤¹¥Í½™½Éµ…Ð ¤°(€€€€€€€€€€€€€€€€€€€€‰…Ñ¥Ù¥Ñ¥•ÌˆèÍÑ½É”¹±¥ÍÑ}…Ñ¥Ù¥Ñ¥•Ì ˆÀÀÀÄ´ÀÄ´ÀÄˆ°€ˆääää´ÄÈ´ÌÄˆ¤°(€€€€€€€€€€€€€€€€€€€€‰½…±ÌˆèÍÑ½É”¹±¥ÍÑ}½…±Ì ¤°(€€€€€€€€€€€€€€€ô¤(€€€€€€€€€€€•±Í”è(€€€€€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì‰•ÉÉ½Èˆè€‰9½Ð™½Õ¹¸‰ô°ÍÑ…ÑÕÌôÐÀÐ¤(€€€€€€€•á•ÁÐ€¡Y…±Õ•ÉÉ½È°QåÁ•ÉÉ½È¤…Ì•ÉÉ½Èè(€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì‰•ÉÉ½ÈˆèÍÑÈ¡•ÉÉ½È¤½È€‰%¹Ù…±¥É•ÅÕ•ÍÐ¸‰ô°ÍÑ…ÑÕÌôÐÀÀ¤(€€€€€€€•á•ÁÐá•ÁÑ¥½¸è(€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì‰•ÉÉ½Èˆè€‰…å‰½½¬½Õ±¹½Ð½µÁ±•Ñ”Ñ¡…ÐÉ•ÅÕ•ÍÐ¸‰ô°ÍÑ…ÑÕÌôÔÀÀ¤((€€€‘•˜‘½}A=MP¡Í•±˜¤€´ø9½¹”è(€€€€€€€ÑÉäè(€€€€€€€€€€€Á…å±½…€ôÍ•±˜¹}É•…‘}©Í½¸ ¤(€€€€€€€€€€€ÍÑ½É”€ô•Ñ}ÍÑ½É” ¤(€€€€€€€€€€€¥˜Í•±˜¹Á…Ñ €ôô€ˆ½…Á¤½•¹ÑÉ¥•Ìˆè(€€€€€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì‰•¹ÑÉäˆèÍÑ½É”¹…‘‘}…Ñ¥Ù¥Ñä¡Í•±˜¹}Ù…±¥‘…Ñ•}…Ñ¥Ù¥Ñä¡Á…å±½…¤¥ô°ÍÑ…ÑÕÌôÈÀÄ¤(€€€€€€€€€€€•±¥˜Í•±˜¹Á…Ñ €ôô€ˆ½…Á¤½½…±Ìˆè(€€€€€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì‰½…°ˆèÍÑ½É”¹…‘‘}½…° ©Í•±˜¹}Ù…±¥‘…Ñ•}½…°¡Á…å±½…¤¥ô°ÍÑ…ÑÕÌôÈÀÄ¤(€€€€€€€€€€€•±Í”è(€€€€€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì‰•ÉÉ½Èˆè€‰9½Ð™½Õ¹¸‰ô°ÍÑ…ÑÕÌôÐÀÐ¤(€€€€€€€•á•ÁÐ€¡Y…±Õ•ÉÉ½È°QåÁ•ÉÉ½È°©Í½¸¹)M=9•½‘•ÉÉ½È¤…Ì•ÉÉ½Èè(€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì‰•ÉÉ½ÈˆèÍÑÈ¡•ÉÉ½È¤½È€‰%¹Ù…±¥É•ÅÕ•ÍÐ¸‰ô°ÍÑ…ÑÕÌôÐÀÀ¤(€€€€€€€•á•ÁÐá•ÁÑ¥½¸è(€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì‰•ÉÉ½Èˆè€‰…å‰½½¬½Õ±¹½ÐÍ…Ù”Ñ¡…Ð¥Ñ•´¸‰ô°ÍÑ…ÑÕÌôÔÀÀ¤((€€€‘•˜‘½}1Q¡Í•±˜¤€´ø9½¹”è(€€€€€€€µ…Ñ €ôÉ”¹™Õ±±µ…Ñ ¡Èˆ½…Á¤¼¡•¹ÑÉ¥•Íñ½…±Ì¤¼¡q¬¤ˆ°Í•±˜¹Á…Ñ ¤(€€€€€€€¥˜¹½Ðµ…Ñ è(€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì‰•ÉÉ½Èˆè€‰9½Ð™½Õ¹¸‰ô°ÍÑ…ÑÕÌôÐÀÐ¤(€€€€€€€€€€€É•ÑÕÉ¸(€€€€€€€É•½É‘}ÑåÁ”°É•½É‘}¥€ôµ…Ñ ¹É½ÕÁÌ ¤(€€€€€€€ÍÑ½É”€ô•Ñ}ÍÑ½É” ¤(€€€€€€€‘•±•Ñ•€ôÍÑ½É”¹‘•±•Ñ•}…Ñ¥Ù¥Ñä¡¥¹Ð¡É•½É‘}¥¤¤¥˜É•½É‘}ÑåÁ”€ôô€‰•¹ÑÉ¥•Ìˆ•±Í”ÍÑ½É”¹‘•±•Ñ•}½…°¡¥¹Ð¡É•½É‘}¥¤¤(€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì‰‘•±•Ñ•ˆè‘•±•Ñ•‘ô°ÍÑ…ÑÕÌôÈÀÀ¥˜‘•±•Ñ••±Í”€ÐÀÐ¤((€€€‘•˜‘½}AUP¡Í•±˜¤€´ø9½¹”è(€€€€€€€µ…Ñ €ôÉ”¹™Õ±±µ…Ñ ¡Èˆ½…Á¤½•¹ÑÉ¥•Ì¼¡q¬¤ˆ°Í•±˜¹Á…Ñ ¤(€€€€€€€¥˜¹½Ðµ…Ñ è(€€€€ƒŽø¶‰žËkºwµç@€€€€€¥˜¹½ÐÑ¥Ñ±”½È±•¸¡Ñ¥Ñ±”¤€ø€ÄÈÀè(€€€€€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰Ñ¥Ù¥Ñä¹…µ”¥ÌÉ•ÅÕ¥É•…¹µÕÍÐ‰”€ÄÈÀ¡…É…Ñ•ÉÌ½È™•Ý•È¸ˆ¤(€€€€€€€¥˜¹½Ð…Ñ•½Éä½È±•¸¡…Ñ•½Éä¤€ø€ÐÀè(€€€€€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰¡½½Í”„…Ñ•½ÉäÕÀÑ¼€ÐÀ¡…É…Ñ•ÉÌ±½¹œ¸ˆ¤(€€€€€€€¥˜±•¸¡¹½Ñ•Ì¤€ø€ÈÀÀÀè(€€€€€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰9½Ñ•ÌµÕÍÐ‰”€È°ÀÀÀ¡…É…Ñ•ÉÌ½È™•Ý•È¸ˆ¤(€€€€€€€½ÕÑ½µ”€ôÍÑÈ¡Á…å±½…¹•Ð ‰½ÕÑ½µ”ˆ°€‰ÁÉ½É•ÍÌˆ¤¤(€€€€€€€¥˜½ÕÑ½µ”¹½Ð¥¸ì‰½µÁ±•Ñ•ˆ°€‰ÁÉ½É•ÍÌˆ°€‰½¹½¥¹œˆ°€‰É•ÍÐ‰ôè(€€€€€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰¡½½Í”„Ù…±¥…Ñ¥Ù¥Ñä½ÕÑ½µ”¸ˆ¤(€€€€€€€‘…Ñ”¹™É½µ¥Í½™½Éµ…Ð¡‘…ä¤(€€€€€€€¥˜•¹ÑÉå}Ñ¥µ”è(€€€€€€€€€€€Ñ¥µ”¹™É½µ¥Í½™½Éµ…Ð¡•¹ÑÉå}Ñ¥µ”¤(€€€€€€€¥˜•¹‘}Ñ¥µ”è(€€€€€€€€€€€Ñ¥µ”¹™É½µ¥Í½™½Éµ…Ð¡•¹‘}Ñ¥µ”¤(€€€€€€€€€€€¥˜¹½Ð•¹ÑÉå}Ñ¥µ”è(€€€€€€€€€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰‘„ÍÑ…ÉÐÑ¥µ”‰•™½É”Í•ÑÑ¥¹œ…¸•¹Ñ¥µ”¸ˆ¤(€€€€€€€€€€€ÍÑ…ÉÐ€ôÑ¥µ”¹™É½µ¥Í½™½Éµ…Ð¡•¹ÑÉå}Ñ¥µ”¤(€€€€€€€€€€€•¹€ôÑ¥µ”¹™É½µ¥Í½™½Éµ…Ð¡•¹‘}Ñ¥µ”¤(€€€€€€€€€€€µ¥¹ÕÑ•Ì€ô€¡•¹¹¡½ÕÈ€¨€ØÀ€¬•¹¹µ¥¹ÕÑ”¤€´€¡ÍÑ…ÉÐ¹¡½ÕÈ€¨€ØÀ€¬ÍÑ…ÉÐ¹µ¥¹ÕÑ”¤(€€€€€€€€€€€¥˜µ¥¹ÕÑ•Ì€ð€Àè(€€€€€€€€€€€€€€€µ¥¹ÕÑ•Ì€¬ô€ÄÐÐÀ(€€€€€€€•±Í”è(€€€€€€€€€€€€Œ-••À…•ÁÑ¥¹œÍ…Ù•‘ÕÉ…Ñ¥½¹Ì™É½´½±‘•È±¥•¹ÑÌ…¹•¹ÑÉ¥•Ì¸(€€€€€€€€€€€µ¥¹ÕÑ•Ì€ô¥¹Ð¡Á…å±½…¹•Ð ‰µ¥¹ÕÑ•Ìˆ°€À¤¤(€€€€€€€¥˜¹½Ð€À€ðôµ¥¹ÕÑ•Ì€ðô€ÄÐÐÀè(€€€€€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰ÕÉ…Ñ¥½¸µÕÍÐ‰”‰•ÑÝ••¸€À…¹€Ä°ÐÐÀµ¥¹ÕÑ•Ì¸ˆ¤(€€€€€€€É…Ý}•¹•Éä€ôÁ…å±½…¹•Ð ‰•¹•Éäˆ¤(€€€€€€€•¹•Éä€ô9½¹”¥˜É…Ý}•¹•Éä¥¸€¡9½¹”°€ˆˆ¤•±Í”¥¹Ð¡É…Ý}•¹•Éä¤(€€€€€€€¥˜•¹•Éä¥Ì¹½Ð9½¹”…¹¹½Ð€Ä€ðô•¹•Éä€ðô€Ôè(€€€€€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰¹•ÉäÉ…Ñ¥¹œµÕÍÐ‰”‰•ÑÝ••¸€Ä…¹€Ô¸ˆ¤(€€€€€€€É•ÑÕÉ¸ì‰‘…äˆè‘…ä°€‰Ñ¥µ”ˆè•¹ÑÉå}Ñ¥µ”°€‰•¹‘}Ñ¥µ”ˆè•¹‘}Ñ¥µ”°€‰Ñ¥Ñ±”ˆèÑ¥Ñ±”°€‰…Ñ•½Éäˆè…Ñ•½Éä°€‰¹½Ñ•Ìˆè¹½Ñ•Ì°€‰µ¥¹ÕÑ•Ìˆèµ¥¹ÕÑ•Ì°€‰½ÕÑ½µ”ˆè½ÕÑ½µ”°€‰•¹•Éäˆè•¹•Éåô((€€€ÍÑ…Ñ¥µ•Ñ¡½(€€€‘•˜}Ù…±¥‘…Ñ•}½…°¡Á…å±½…è‘¥Ð¤€´øÑÕÁ±•mÍÑÈ°ÍÑÈ°¥¹Ñtè(€€€€€€€Ñ¥Ñ±”€ôÍÑÈ¡Á…å±½…¹•Ð ‰Ñ¥Ñ±”ˆ°€ˆˆ¤¤¹ÍÑÉ¥À ¤(€€€€€€€…Ñ•½Éä€ôÍÑÈ¡Á…å±½…¹•Ð ‰…Ñ•½Éäˆ°€ˆˆ¤¤¹ÍÑÉ¥À ¤(€€€€€€€Ñ…É•Ð€ô¥¹Ð¡Á…å±½…¹•Ð ‰Ñ…É•Ñ}µ¥¹ÕÑ•Í}Ý••¬ˆ°€À¤¤(€€€€€€€¥˜¹½ÐÑ¥Ñ±”½È±•¸¡Ñ¥Ñ±”¤€ø€ÄÀÀè(€€€€€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰½…°¹…µ”¥ÌÉ•ÅÕ¥É•…¹µÕÍÐ‰”€ÄÀÀ¡…É…Ñ•ÉÌ½È™•Ý•È¸ˆ¤(€€€€€€€¥˜¹½Ð…Ñ•½Éä½È±•¸¡…Ñ•½Éä¤€ø€ÐÀè(€€€€€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰½…°…Ñ•½Éä¥ÌÉ•ÅÕ¥É•…¹µÕÍÐ‰”€ÐÀ¡…É…Ñ•ÉÌ½È™•Ý•È¸ˆ¤(€€€€€€€¥˜¹½Ð€Ä€ðôÑ…É•Ð€ðô€ÄÀÀàÀè(€€€€€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰]••­±äÑ…É•ÐµÕÍÐ‰”‰•ÑÝ••¸€Ä…¹€ÄÀ°ÀàÀµ¥¹ÕÑ•Ì¸ˆ¤(€€€€€€€É•ÑÕÉ¸Ñ¥Ñ±”°…Ñ•½Éä°Ñ…É•Ð((€€€‘•˜}Í•ÉÙ•}ÍÑ…Ñ¥Œ¡Í•±˜°™¥±•¹…µ”èÍÑÈ¤€´ø9½¹”è(€€€€€€€…±±½Ý•€ôì‰¥¹‘•à¹¡Ñµ°ˆ°€‰…ÁÀ¹©Ìˆ°€‰ÍÑå±•Ì¹ÍÌ‰ô(€€€€€€€¥˜™¥±•¹…µ”¹½Ð¥¸…±±½Ý•è(€€€€€€€€€€€Í•±˜¹}Í•¹‘}©Í½¸¡ì‰•ÉÉ½Èˆè€‰9½Ð™½Õ¹¸‰ô°ÍÑ…ÑÕÌôÐÀÐ¤(€€€€€€€€€€€É•ÑÕÉ¸(€€€€€€€Á…Ñ €ôMQQ%}I==P€¼™¥±•¹…µ”(€€€€€€€‰½‘ä€ôÁ…Ñ ¹É•…‘}‰åÑ•Ì ¤(€€€€€€€½¹Ñ•¹Ñ}ÑåÁ”€ôìˆ¹¡Ñµ°ˆè€‰Ñ•áÐ½¡Ñµ°ˆ°€ˆ¹©Ìˆè€‰Ñ•áÐ½©…Ù…ÍÉ¥ÁÐˆ°€ˆ¹ÍÌˆè€‰Ñ•áÐ½ÍÌ‰ô¹•Ð¡A…Ñ ¡™¥±•¹…µ”¤¹ÍÕ™™¥à°µ¥µ•ÑåÁ•Ì¹Õ•ÍÍ}ÑåÁ”¡™¥±•¹…µ”¥lÁt½È€‰…ÁÁ±¥…Ñ¥½¸½½Ñ•ÐµÍÑÉ•…´ˆ¤(€€€€€€€Í•±˜¹Í•¹‘}É•ÍÁ½¹Í” ÈÀÀ¤(€€€€€€€Í•±˜¹Í•¹‘}¡•…‘•È ‰½¹Ñ•¹ÐµQåÁ”ˆ°˜‰í½¹Ñ•¹Ñ}ÑåÁ•ôì¡…ÉÍ•ÐõÕÑ˜´àˆ¤(€€€€€€€Í•±˜¹Í•¹‘}¡•…‘•È ‰½¹Ñ•¹Ðµ1•¹Ñ ˆ°ÍÑÈ¡±•¸¡‰½‘ä¤¤¤(€€€€€€€Í•±˜¹Í•¹‘}¡•…‘•È ‰`µ½¹Ñ•¹ÐµQåÁ”µ=ÁÑ¥½¹Ìˆ°€‰¹½Í¹¥™˜ˆ¤(€€€€€€€Í•±˜¹•¹‘}¡•…‘•ÉÌ ¤(€€€€€€€Í•±˜¹Ý™¥±”¹ÝÉ¥Ñ”¡‰½‘ä¤((€€€‘•˜}Í•¹‘}©Í½¸¡Í•±˜°Á…å±½…è‘¥Ð°ÍÑ…ÑÕÌè¥¹Ð€ô€ÈÀÀ¤€´ø9½¹”è(€€€€€€€‰½‘ä€ô©Í½¸¹‘ÕµÁÌ¡Á…å±½…°•¹ÍÕÉ•}…Í¥¤õ…±Í”¤¹•¹½‘” ‰ÕÑ˜´àˆ¤(€€€€€€€Í•±˜¹Í•¹‘}É•ÍÁ½¹Í”¡ÍÑ…ÑÕÌ¤(€€€€€€€Í•±˜¹Í•¹‘}¡•…‘•È ‰½¹Ñ•¹ÐµQåÁ”ˆ°€‰…ÁÁ±¥…Ñ¥½¸½©Í½¸ì¡…ÉÍ•ÐõÕÑ˜´àˆ¤(€€€€€€€Í•±˜¹Í•¹‘}¡•…‘•È ‰½¹Ñ•¹Ðµ1•¹Ñ ˆ°ÍÑÈ¡±•¸¡‰½‘ä¤¤¤(€€€€€€€Í•±˜¹Í•¹‘}¡•…‘•È ‰…¡”µ½¹ÑÉ½°ˆ°€‰¹¼µÍÑ½É”ˆ¤(€€€€€€€Í•±˜¹Í•¹‘}¡•…‘•È ‰`µ½¹Ñ•¹ÐµQåÁ”µ=ÁÑ¥½¹Ìˆ°€‰¹½Í¹¥™˜ˆ¤(€€€€€€€Í•±˜¹•¹‘}¡•…‘•ÉÌ ¤(€€€€€€€Í•±˜¹Ý™¥±”¹ÝÉ¥Ñ”¡‰½‘ä¤((€€€‘•˜±½}µ•ÍÍ…”¡Í•±˜°™½Éµ…ÐèÍÑÈ°€©…ÉÌè½‰©•Ð¤€´ø9½¹”è(€€€€€€€€Œ-••À¹½Éµ…°…Ñ¥Ù¥Ñä½ÕÐ½˜Ñ¡”½¹Í½±”ìÍÑ…ÉÑÕÀ½•ÉÉ½ÉÌ…É”•¹½Õ ™½ÈÑ¡¥Ì±½…°…ÁÀ¸(€€€€€€€É•ÑÕÉ¸(()‘•˜µ…¥¸ ¤€´ø9½¹”è(€€€Á½ÉÐ€ô¥¹Ð¡½Ì¹•¹Ù¥É½¸¹•Ð ‰e	==-}A=IPˆ°€ˆàÜØÔˆ¤¤(€€€•Ñ}ÍÑ½É” ¤(€€€Í•ÉÙ•È€ôQ¡É•…‘¥¹!QQAM•ÉÙ•È  ˆÄÈÜ¸À¸À¸Äˆ°Á½ÉÐ¤°…å‰½½­!…¹‘±•È¤(€€€ÕÉ°€ô˜‰¡ÑÑÀè¼¼ÄÈÜ¸À¸À¸ÄéíÁ½ÉÑô¼ˆ(€€€ÁÉ¥¹Ð¡˜‰…å‰½½¬¥ÌÉÕ¹¹¥¹œ…ÐíÕÉ±ô€¡±½…°µ…¡¥¹”½¹±ä¤¸AÉ•ÍÌÑÉ°­Ñ¼ÍÑ½À¸ˆ¤(€€€€Œ¥Ù”Ñ¡”Í•ÉÙ•È„µ½µ•¹ÐÑ¼•¹Ñ•È¥ÑÌÉ•ÅÕ•ÍÐ±½½À‰•™½É”½Á•¹¥¹œÑ¡”Á…”¸(€€€Ñ¡É•…‘¥¹œ¹Q¥µ•È À¸Ô°Ý•‰‰É½ÝÍ•È¹½Á•¸°…ÉÌô¡ÕÉ°°¤¤¹ÍÑ…ÉÐ ¤(€€€ÑÉäè(€€€€€€€Í•ÉÙ•È¹Í•ÉÙ•}™½É•Ù•È ¤(€€€•á•ÁÐ-•å‰½…É‘%¹Ñ•ÉÉÕÁÐè(€€€€€€€ÁÉ¥¹Ð ‰q¹…å‰½½¬ÍÑ½ÁÁ•¸ˆ¤(€€€™¥¹…±±äè(€€€€€€€Í•ÉÙ•È¹Í•ÉÙ•É}±½Í” ¤(()¥˜}}¹…µ•}|€ôô€‰}}µ…¥¹}|ˆè(€€€µ…¥¸ ¤(
+"""Small dependency-free HTTP server for the local Daybook app."""
+
+from __future__ import annotations
+
+import json
+import mimetypes
+import re
+import threading
+import webbrowser
+import os
+from datetime import date, time
+from http.server import BaseHTTPRequestHandler, ThreadingHTTPServer
+from pathlib import Path
+from urllib.parse import parse_qs, urlparse
+
+from .analytics import build_summary, period_bounds
+from .store import Store
+
+APP_ROOT = Path(__file__).parent
+STATIC_ROOT = APP_ROOT / "static"
+STORE: Store | None = None
+MAX_BODY_BYTES = 128_000
+
+
+def get_store() -> Store:
+    global STORE
+    if STORE is None:
+        STORE = Store()
+    return STORE
+
+
+class DaybookHandler(BaseHTTPRequestHandler):
+    server_version = "Daybook/0.1"
+
+    def do_GET(self) -> None:
+        parsed = urlparse(self.path)
+        query = parse_qs(parsed.query)
+        try:
+            if parsed.path == "/" or parsed.path in {"/index.html", "/app.js", "/styles.css"}:
+                self._serve_static("index.html" if parsed.path == "/" else parsed.path.lstrip("/"))
+            elif parsed.path == "/api/summary":
+                period = query.get("period", ["day"])[0]
+                selected = date.fromisoformat(query.get("date", [date.today().isoformat()])[0])
+                if period not in {"day", "week", "month", "year"}:
+                    raise ValueError("Choose day, week, month, or year.")
+                start, end, previous_start, previous_end = period_bounds(period, selected)
+                store = get_store()
+                current = store.list_activities(start.isoformat(), end.isoformat())
+                previous = store.list_activities(previous_start.isoformat(), previous_end.isoformat())
+                summary = build_summary(period, selected, current, previous, store.list_goals())
+                self._send_json(summary)
+            elif parsed.path == "/api/entries":
+                start = query.get("from", [(date.today().replace(day=1)).isoformat()])[0]
+                end = query.get("to", [date.today().isoformat()])[0]
+                date.fromisoformat(start)
+                date.fromisoformat(end)
+                store = get_store()
+                self._send_json({"entries": store.list_activities(start, end)})
+            elif parsed.path == "/api/goals":
+                store = get_store()
+                self._send_json({"goals": store.list_goals()})
+            elif parsed.path == "/api/export":
+                store = get_store()
+                self._send_json({
+                    "format_version": 1,
+                    "exported_on": date.today().isoformat(),
+                    "activities": store.list_activities("0001-01-01", "9999-12-31"),
+                    "goals": store.list_goals(),
+                })
+            else:
+                self._send_json({"error": "Not found."}, status=404)
+        except (ValueError, TypeError) as error:
+            self._send_json({"error": str(error) or "Invalid request."}, status=400)
+        except Exception:
+            self._send_json({"error": "Daybook could not complete that request."}, status=500)
+
+    def do_POST(self) -> None:
+        try:
+            payload = self._read_json()
+            store = get_store()
+            if self.path == "/api/entries":
+                self._send_json({"entry": store.add_activity(self._validate_activity(payload))}, status=201)
+            elif self.path == "/api/goals":
+                self._send_json({"goal": store.add_goal(*self._validate_goal(payload))}, status=201)
+            else:
+                self._send_json({"error": "Not found."}, status=404)
+        except (ValueError, TypeError, json.JSONDecodeError) as error:
+            self._send_json({"error": str(error) or "Invalid request."}, status=400)
+        except Exception:
+            self._send_json({"error": "Daybook could not save that item."}, status=500)
+
+    def do_DELETE(self) -> None:
+        match = re.fullmatch(r"/api/(entries|goals)/(\d+)", self.path)
+        if not match:
+            self._send_json({"error": "Not found."}, status=404)
+            return
+        record_type, record_id = match.groups()
+        store = get_store()
+        deleted = store.delete_activity(int(record_id)) if record_type == "entries" else store.delete_goal(int(record_id))
+        self._send_json({"deleted": deleted}, status=200 if deleted else 404)
+
+    def do_PUT(self) -> None:
+        match = re.fullmatch(r"/api/entries/(\d+)", self.path)
+        if not match:
+            self._send_json({"error": "Not found."}, status=404)
+            return
+        try:
+            payload = self._read_json()
+            store = get_store()
+            entry = store.update_activity(int(match.group(1)), self._validate_activity(payload))
+            self._send_json({"entry": entry}, status=200 if entry else 404)
+        except (ValueError, TypeError, json.JSONDecodeError) as error:
+            self._send_json({"error": str(error) or "Invalid request."}, status=400)
+        except Exception:
+            self._send_json({"error": "Daybook could not update that item."}, status=500)
+
+    def _read_json(self) -> dict:
+        length = int(self.headers.get("Content-Length", "0"))
+        if length < 1 or length > MAX_BODY_BYTES:
+            raise ValueError("Request body is empty or too large.")
+        payload = json.loads(self.rfile.read(length))
+        if not isinstance(payload, dict):
+            raise ValueError("Expected a JSON object.")
+        return payload
+
+    @staticmethod
+    def _validate_activity(payload: dict) -> dict:
+        title = str(payload.get("title", "")).strip()
+        category = str(payload.get("category", "")).strip()
+        notes = str(payload.get("notes", "")).strip()
+        day = str(payload.get("day", date.today().isoformat()))
+        entry_time = str(payload.get("time", "")).strip()
+        end_time = str(payload.get("end_time", "")).strip()
+        if not title or len(title) > 120:
+            raise ValueError("Activity name is required and must be 120 characters or fewer.")
+        if not category or len(category) > 40:
+            raise ValueError("Choose a category up to 40 characters long.")
+        if len(notes) > 2000:
+            raise ValueError("Notes must be 2,000 characters or fewer.")
+        outcome = str(payload.get("outcome", "progress"))
+        if outcome not in {"completed", "progress", "ongoing", "rest"}:
+            raise ValueError("Choose a valid activity outcome.")
+        date.fromisoformat(day)
+        if entry_time:
+            time.fromisoformat(entry_time)
+        if end_time:
+            time.fromisoformat(end_time)
+            if not entry_time:
+                raise ValueError("Add a start time before setting an end time.")
+            start = time.fromisoformat(entry_time)
+            end = time.fromisoformat(end_time)
+            minutes = (end.hour * 60 + end.minute) - (start.hour * 60 + start.minute)
+            if minutes < 0:
+                minutes += 1440
+        else:
+            # Keep accepting saved durations from older clients and entries.
+            minutes = int(payload.get("minutes", 0))
+        if not 0 <= minutes <= 1440:
+            raise ValueError("Duration must be between 0 and 1,440 minutes.")
+        raw_energy = payload.get("energy")
+        energy = None if raw_energy in (None, "") else int(raw_energy)
+        if energy is not None and not 1 <= energy <= 5:
+            raise ValueError("Energy rating must be between 1 and 5.")
+        return {"day": day, "time": entry_time, "end_time": end_time, "title": title, "category": category, "notes": notes, "minutes": minutes, "outcome": outcome, "energy": energy}
+
+    @staticmethod
+    def _validate_goal(payload: dict) -> tuple[str, str, int]:
+        title = str(payload.get("title", "")).strip()
+        category = str(payload.get("category", "")).strip()
+        target = int(payload.get("target_minutes_week", 0))
+        if not title or len(title) > 100:
+            raise ValueError("Goal name is required and must be 100 characters or fewer.")
+        if not category or len(category) > 40:
+            raise ValueError("Goal category is required and must be 40 characters or fewer.")
+        if not 1 <= target <= 10080:
+            raise ValueError("Weekly target must be between 1 and 10,080 minutes.")
+        return title, category, target
+
+    def _serve_static(self, filename: str) -> None:
+        allowed = {"index.html", "app.js", "styles.css"}
+        if filename not in allowed:
+            self._send_json({"error": "Not found."}, status=404)
+            return
+        path = STATIC_ROOT / filename
+        body = path.read_bytes()
+        content_type = {".html": "text/html", ".js": "text/javascript", ".css": "text/css"}.get(Path(filename).suffix, mimetypes.guess_type(filename)[0] or "application/octet-stream")
+        self.send_response(200)
+        self.send_header("Content-Type", f"{content_type}; charset=utf-8")
+        self.send_header("Content-Length", str(len(body)))
+        self.send_header("X-Content-Type-Options", "nosniff")
+        self.end_headers()
+        self.wfile.write(body)
+
+    def _send_json(self, payload: dict, status: int = 200) -> None:
+        body = json.dumps(payload, ensure_ascii=False).encode("utf-8")
+        self.send_response(status)
+        self.send_header("Content-Type", "application/json; charset=utf-8")
+        self.send_header("Content-Length", str(len(body)))
+        self.send_header("Cache-Control", "no-store")
+        self.send_header("X-Content-Type-Options", "nosniff")
+        self.end_headers()
+        self.wfile.write(body)
+
+    def log_message(self, format: str, *args: object) -> None:
+        # Keep normal activity out of the console; startup/errors are enough for this local app.
+        return
+
+
+def main() -> None:
+    port = int(os.environ.get("DAYBOOK_PORT", "8765"))
+    get_store()
+    server = ThreadingHTTPServer(("127.0.0.1", port), DaybookHandler)
+    url = f"http://127.0.0.1:{port}/"
+    print(f"Daybook is running at {url} (local machine only). Press Ctrl+C to stop.")
+    # Give the server a moment to enter its request loop before opening the page.
+    threading.Timer(0.5, webbrowser.open, args=(url,)).start()
+    try:
+        server.serve_forever()
+    except KeyboardInterrupt:
+        print("\nDaybook stopped.")
+    finally:
+        server.server_close()
+
+
+if __name__ == "__main__":
+    main()

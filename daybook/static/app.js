@@ -1,110 +1,736 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×N·Ù:-jZ.¶›­–)Ş³V6öç7B7FFRÒ·W&–öC¢&F’"ÂFFS¢Æö6ÄFFU7G&–ær†æWrFFR‚’’Â7VÖÖ'“¢çVÆÇÓ°¦ÆWBVF—F–ætVçG'”–BÒçVÆÃ°¦ÆWBÆVv7”Ö–çWFW4öäVF—BÒçVÆÃ°¦ÆWBGW&F–öäf–VÆG46†ævVBÒfÇ6S°¦ÆWBW‡÷'D6&DFFÒçVÆÃ°¦ÆWBW‡÷'D6&E7fuW&ÂÒçVÆÃ°¦6öç7BBÒ‡6VÆV7F÷"’ÓâFö7VÖVçBçVW'•6VÆV7F÷"‡6VÆV7F÷"“°¦6öç7B6öÖÖöä&V2Ò²%v÷&²"Â$ÆV&æ–ær"Â$†VÇF‚"Â%&VÆF–öç6†—2"Â$†öÖR"Â%&W7B"Â%W'6öæÂ&ö¦V7B%Ó° ¦gVæ7F–öâ6WGW&V–6¶W'2‚’°¢Fö7VÖVçBçVW'•6VÆV7F÷$ÆÂ‚"æ6FVv÷'’×–6¶W""’æf÷$V6‚‚‡–6¶W"’Óâ°¢6öç7B–çWBÒ–6¶W"çVW'•6VÆV7F÷"‚&–çWB"“°¢6öç7BFövvÆRÒ–6¶W"çVW'•6VÆV7F÷"‚"æ6FVv÷'’×–6¶W"×FövvÆR"“°¢6öç7BÖVçRÒ–6¶W"çVW'•6VÆV7F÷"‚"æ6FVv÷'’Ö÷F–öç2ÖÖVçR"“°¢6öç7B6Æ÷6RÒ‚’Óâ°¢ÖVçRæ†–FFVâÒG'VS°¢FövvÆRç6WDGG&–'WFR‚&&–ÖW‡æFVB"Â&fÇ6R"“°¢Ó°¢6öç7B÷VâÒ†f–ÇFW"Ò""’Óâ°¢6öç7BÖF6†–ærÒ6öÖÖöä&V2æf–ÇFW"‚†&V’Óâ&VçFôÆ÷vW$66R‚’æ–æ6ÇVFW2†f–ÇFW"çFôÆ÷vW$66R‚’’“°¢ÖVçRç&WÆ6T6†–ÆG&Vâ‚“°¢f÷"†6öç7B&VöbÖF6†–ær’°¢6öç7B÷F–öâÒFö7VÖVçBæ7&VFTVÆVÖVçB‚&'WGFöâ"“°¢÷F–öâçG—RÒ&'WGFöâ#°¢÷F–öâæ6Æ74æÖRÒ&6FVv÷'’Ö÷F–öâ#°¢÷F–öâç6WDGG&–'WFR‚'&öÆR"Â&÷F–öâ"“°¢÷F–öâç6WDGG&–'WFR‚&&–×6VÆV7FVB"Â7G&–ær†–çWBçfÇVRçFôÆ÷vW$66R‚’ÓÓÒ&VçFôÆ÷vW$66R‚’’“°¢÷F–öâçFW‡D6öçFVçBÒ&V°¢÷F–öâæFDWfVçDÆ—7FVæW"‚&6Æ–6²"Â‚’Óâ°¢–çWBçfÇVRÒ&V°¢–çWBæF—7F6„WfVçB†æWrWfVçB‚&–çWB"Â¶'V&&ÆW3¢G'VWÒ’“°¢6Æ÷6R‚“°¢–çWBæfö7W2‚“°¢Ò“°¢ÖVçRæVæB†÷F–öâ“°¢Ğ¢ÖVçRæ†–FFVâÒfÇ6S°¢FövvÆRç6WDGG&–'WFR‚&&–ÖW‡æFVB"Â'G'VR"“°¢Ó°¢FövvÆRæFDWfVçDÆ—7FVæW"‚&6Æ–6²"Â‚’Óâ°¢–b†ÖVçRæ†–FFVâ’÷Vâ‚“°¢VÇ6R6Æ÷6R‚“°¢Ò“°¢–çWBæFDWfVçDÆ—7FVæW"‚&–çWB"Â‚’Óâ°¢–b‚ÖVçRæ†–FFVâ’÷Vâ†–çWBçfÇVR“°¢Ò“°¢–çWBæFDWfVçDÆ—7FVæW"‚&¶W–F÷vâ"Â†WfVçB’Óâ°¢–b†WfVçBæ¶W’ÓÓÒ$'&÷tF÷vâ"’°¢WfVçBç&WfVçDFVfVÇB‚“°¢÷Vâ‚“°¢ÒVÇ6R–b†WfVçBæ¶W’ÓÓÒ$W66R"’°¢6Æ÷6R‚“°¢Ğ¢Ò“°¢Fö7VÖVçBæFDWfVçDÆ—7FVæW"‚&6Æ–6²"Â†WfVçB’Óâ°¢–b‚–6¶W"æ6öçF–ç2†WfVçBçF&vWB’’6Æ÷6R‚“°¢Ò“°¢Ò“°§Ğ ¦gVæ7F–öâ7–æ57G–ÆVE6VÆV7B‡6VÆV7B’°¢6öç7B–6¶W"Ò6VÆV7Còæ6Æ÷6W7B‚"ç7G–ÆVB×6VÆV7B"“°¢–b‡–6¶W"’–6¶W"çVW'•6VÆV7F÷"‚"ç7G–ÆVB×6VÆV7B×G&–vvW"â7ã¦f—'7BÖ6†–ÆB"’çFW‡D6öçFVçBÒ6VÆV7Bç6VÆV7FVD÷F–öç5³ÓòçFW‡D6öçFVçBÇÂ"#°§Ğ ¦gVæ7F–öâ6WGW7G–ÆVE6VÆV7G2‚’°¢Fö7VÖVçBçVW'•6VÆV7F÷$ÆÂ‚"ç7G–ÆVB×6VÆV7B"’æf÷$V6‚‚‡–6¶W"’Óâ°¢6öç7B6VÆV7BÒ–6¶W"çVW'•6VÆV7F÷"‚'6VÆV7B"“°¢6öç7BG&–vvW"Ò–6¶W"çVW'•6VÆV7F÷"‚"ç7G–ÆVB×6VÆV7B×G&–vvW""“°¢6öç7BÖVçRÒ–6¶W"çVW'•6VÆV7F÷"‚"ç7G–ÆVB×6VÆV7BÖÖVçR"“°¢6öç7B6Æ÷6RÒ‡&WGW&äfö7W2ÒfÇ6R’Óâ°¢ÖVçRæ†–FFVâÒG'VS°¢G&–vvW"ç6WDGG&–'WFR‚&&–ÖW‡æFVB"Â&fÇ6R"“°¢–b‡&WGW&äfö7W2’G&–vvW"æfö7W2‚“°¢Ó°¢6öç7B÷VâÒ‚’Óâ°¢ÖVçRç&WÆ6T6†–ÆG&Vâ‚“°¢f÷"†6öç7B—FVÒöb6VÆV7Bæ÷F–öç2’°¢6öç7B÷F–öâÒFö7VÖVçBæ7&VFTVÆVÖVçB‚&'WGFöâ"“°¢÷F–öâçG—RÒ&'WGFöâ#°¢÷F–öâæ6Æ74æÖRÒ&6FVv÷'’Ö÷F–öâ#°¢÷F–öâç6WDGG&–'WFR‚'&öÆR"Â&÷F–öâ"“°¢÷F–öâç6WDGG&–'WFR‚&&–×6VÆV7FVB"Â7G&–ær†—FVÒçfÇVRÓÓÒ6VÆV7BçfÇVR’“°¢÷F–öâçFW‡D6öçFVçBÒ—FVÒçFW‡D6öçFVçC°¢÷F–öâæFDWfVçDÆ—7FVæW"‚&6Æ–6²"Â‚’Óâ°¢6VÆV7BçfÇVRÒ—FVÒçfÇVS°¢6VÆV7BæF—7F6„WfVçB†æWrWfVçB‚&6†ævR"Â¶'V&&ÆW3¢G'VWÒ’“°¢6Æ÷6R‡G'VR“°¢Ò“°¢ÖVçRæVæB†÷F–öâ“°¢Ğ¢ÖVçRæ†–FFVâÒfÇ6S°¢G&–vvW"ç6WDGG&–'WFR‚&&–ÖW‡æFVB"Â'G'VR"“°¢Ó°¢6VÆV7BæFDWfVçDÆ—7FVæW"‚&6†ævR"Â‚’Óâ7–æ57G–ÆVE6VÆV7B‡6VÆV7B’“°¢G&–vvW"æFDWfVçDÆ—7FVæW"‚&6Æ–6²"Â‚’ÓâÖVçRæ†–FFVâò÷Vâ‚’¢6Æ÷6R‚’“°¢G&–vvW"æFDWfVçDÆ—7FVæW"‚&¶W–F÷vâ"Â†WfVçB’Óâ°¢–b†WfVçBæ¶W’ÓÓÒ$'&÷tF÷vâ"ÇÂWfVçBæ¶W’ÓÓÒ$'&÷uW"ÇÂWfVçBæ¶W’ÓÓÒ$VçFW""ÇÂWfVçBæ¶W’ÓÓÒ""’°¢WfVçBç&WfVçDFVfVÇB‚“°¢–b†ÖVçRæ†–FFVâ’÷Vâ‚“°¢ÖVçRçVW'•6VÆV7F÷"‚u¶&–×6VÆV7FVCÒ'G'VR%Òr“òæfö7W2‚“°¢Ğ¢Ò“°¢ÖVçRæFDWfVçDÆ—7FVæW"‚&¶W–F÷vâ"Â†WfVçB’Óâ°¢6öç7B÷F–öç2Ò²ââæÖVçRçVW'•6VÆV7F÷$ÆÂ‚"æ6FVv÷'’Ö÷F–öâ"•Ó°¢6öç7B–æFW‚Ò÷F–öç2æ–æFW„öb†Fö7VÖVçBæ7F—fTVÆVÖVçB“°¢–b†WfVçBæ¶W’ÓÓÒ$W66R"’6Æ÷6R‡G'VR“°¢VÇ6R–b†WfVçBæ¶W’ÓÓÒ$'&÷tF÷vâ"’²WfVçBç&WfVçDFVfVÇB‚“²÷F–öç5´ÖF‚æÖ–â†–æFW‚²Â÷F–öç2æÆVæwF‚Ò•Óòæfö7W2‚“²Ğ¢VÇ6R–b†WfVçBæ¶W’ÓÓÒ$'&÷uW"’²WfVçBç&WfVçDFVfVÇB‚“²÷F–öç5´ÖF‚æÖ‚†–æFW‚ÒÂ•Óòæfşúßkh‘éì¶»§q«^vK™›Ü‘XXÚ
+const state = {period: "day", date: localDateString(new Date()), summary: null};
+let editingEntryId = null;
+let legacyMinutesOnEdit = null;
+let durationFieldsChanged = false;
+let exportCardData = null;
+let exportCardSvgUrl = null;
+const $ = (selector) => document.querySelector(selector);
+const commonAreas = ["Work", "Learning", "Health", "Relationships", "Home", "Rest", "Personal project"];
 
-XŠHOˆX‹˜Û\ÜÓ\İÙÙÛJ˜Xİ]™H‹XˆOOH]ÛŠJNÂˆ™Yœ™\Ú
+function setupAreaPickers() {
+  document.querySelectorAll(".category-picker").forEach((picker) => {
+    const input = picker.querySelector("input");
+    const toggle = picker.querySelector(".category-picker-toggle");
+    const menu = picker.querySelector(".category-options-menu");
+    const close = () => {
+      menu.hidden = true;
+      toggle.setAttribute("aria-expanded", "false");
+    };
+    const open = (filter = "") => {
+      const matching = commonAreas.filter((area) => area.toLowerCase().includes(filter.toLowerCase()));
+      menu.replaceChildren();
+      for (const area of matching) {
+        const option = document.createElement("button");
+        option.type = "button";
+        option.className = "category-option";
+        option.setAttribute("role", "option");
+        option.setAttribute("aria-selected", String(input.value.toLowerCase() === area.toLowerCase()));
+        option.textContent = area;
+        option.addEventListener("click", () => {
+          input.value = area;
+          input.dispatchEvent(new Event("input", {bubbles: true}));
+          close();
+          input.focus();
+        });
+        menu.append(option);
+      }
+      menu.hidden = false;
+      toggle.setAttribute("aria-expanded", "true");
+    };
+    toggle.addEventListener("click", () => {
+      if (menu.hidden) open();
+      else close();
+    });
+    input.addEventListener("input", () => {
+      if (!menu.hidden) open(input.value);
+    });
+    input.addEventListener("keydown", (event) => {
+      if (event.key === "ArrowDown") {
+        event.preventDefault();
+        open();
+      } else if (event.key === "Escape") {
+        close();
+      }
+    });
+    document.addEventListener("click", (event) => {
+      if (!picker.contains(event.target)) close();
+    });
+  });
+}
 
-NÂˆJNÂŸJNÂ‚‰
-ˆÜ™]šY]ËY]HŠK˜[YHHİ]K™]NÂ‰
-ˆÜ™]šY]ËY]HŠK˜Y]™[\İ[™\Š˜Ú[™ÙH‹
-]™[
-HOˆÂˆİ]K™]HH]™[\™Ù]˜[YHØØ[]Tİš[™Ê™]È]J
-JNÂˆ™Yœ™\Ú
+function syncStyledSelect(select) {
+  const picker = select?.closest(".styled-select");
+  if (picker) picker.querySelector(".styled-select-trigger > span:first-child").textContent = select.selectedOptions[0]?.textContent || "";
+}
 
-NÂŸJNÂ‚‰
-ˆØXİ]š]KY›Ü›HŠK™[[Y[Ë™^K˜[YHHİ]K™]NÂ‰
-ˆØXİ]š]KY›Ü›HŠK™[[Y[Ë[YK˜[YHH	Ôİš[™Ê™]È]J
-K™Ù]İ\œÊ
-JKœYİ\
-‹ŒŠ_N‰Ôİš[™Ê™]È]J
-K™Ù]Z[]\Ê
-JKœYİ\
-‹ŒŠ_XÂ™›Üˆ
-ÛÛœİšY[ÙˆÉ
-ˆØXİ]š]KY›Ü›HŠK™[[Y[Ë[YK	
-ˆØXİ]š]KY›Ü›HŠK™[[Y[Ë™[™İ[YWJHÂˆšY[˜Y]™[\İ[™\Šš[œ]‹
+function setupStyledSelects() {
+  document.querySelectorAll(".styled-select").forEach((picker) => {
+    const select = picker.querySelector("select");
+    const trigger = picker.querySelector(".styled-select-trigger");
+    const menu = picker.querySelector(".styled-select-menu");
+    const close = (returnFocus = false) => {
+      menu.hidden = true;
+      trigger.setAttribute("aria-expanded", "false");
+      if (returnFocus) trigger.focus();
+    };
+    const open = () => {
+      menu.replaceChildren();
+      for (const item of select.options) {
+        const option = document.createElement("button");
+        option.type = "button";
+        option.className = "category-option";
+        option.setAttribute("role", "option");
+        option.setAttribute("aria-selected", String(item.value === select.value));
+        option.textContent = item.textContent;
+        option.addEventListener("click", () => {
+          select.value = item.value;
+          select.dispatchEvent(new Event("change", {bubbles: true}));
+          close(true);
+        });
+        menu.append(option);
+      }
+      menu.hidden = false;
+      trigger.setAttribute("aria-expanded", "true");
+    };
+    select.addEventListener("change", () => syncStyledSelect(select));
+    trigger.addEventListener("click", () => menu.hidden ? open() : close());
+    trigger.addEventListener("keydown", (event) => {
+      if (event.key === "ArrowDown" || event.key === "ArrowUp" || event.key === "Enter" || event.key === " ") {
+        event.preventDefault();
+        if (menu.hidden) open();
+        menu.querySelector('[aria-selected="true"]')?.focus();
+      }
+    });
+    menu.addEventListener("keydown", (event) => {
+      const options = [...menu.querySelectorAll(".category-option")];
+      const index = options.indexOf(document.activeElement);
+      if (event.key === "Escape") close(true);
+      else if (event.key === "ArrowDown") { event.preventDefault(); options[Math.min(index + 1, options.length - 1)]?.focus(); }
+      else if (event.key === "ArrowUp") { event.preventDefault(); options[Math.max(index - 1, 0)]?.focus(); }
+      else if (event.key === "Home") { event.preventDefault(); options[0]?.focus(); }
+      else if (event.key === "End") { event.preventDefault(); options.at(-1)?.focus(); }
+      else if (event.key === "Tab") close();
+    });
+    document.addEventListener("click", (event) => {
+      if (!picker.contains(event.target)) close();
+    });
+    syncStyledSelect(select);
+  });
+  document.querySelectorAll("form").forEach((form) => form.addEventListener("reset", () => requestAnimationFrame(() => form.querySelectorAll(".styled-select-native").forEach(syncStyledSelect))));
+}
 
-HOˆÂˆ\˜][Û‘šY[ĞÚ[™ÙYHYNÂˆ\]Q\˜][Û”™]šY]Ê
-NÂˆJNÂŸB‰
-ˆØXİ]š]KY›Ü›HŠK˜Y]™[\İ[™\ŠœİX›Z]‹\Ş[˜È
-]™[
-HOˆÂˆ]™[œ™]™[Y˜][
+function confirmAction(title, message) {
+  const dialog = $("#confirm-dialog");
+  $("#confirm-title").textContent = title;
+  $("#confirm-message").textContent = message;
+  dialog.returnValue = "cancel";
+  return new Promise((resolve) => {
+    dialog.addEventListener("close", () => resolve(dialog.returnValue === "confirm"), {once: true});
+    dialog.showModal();
+  });
+}
 
-NÂˆÛÛœİ›Ü›HH]™[˜İ\œ™[\™Ù]ÂˆÛÛœİ]HH™]È›Ü›Q]J›Ü›JNÂˆÛÛœİ^[ØYHØš™Xİ™œ›ÛQ[šY\Ê]K™[šY\Ê
-JNÂˆ^[ØY›Z[]\ÈH^[ØY[YH	‰ˆ^[ØY™[™İ[YBˆÈ[\ÙYZ[]\Ê^[ØY[YK^[ØY™[™İ[YJBˆˆ
-Y\˜][Û‘šY[ĞÚ[™ÙY	‰ˆYØXŞSZ[]\ÓÛ‘Y]OOH[ÈYØXŞSZ[]\ÓÛ‘Y]ˆ
-NÂˆ^[ØY™[™\™ŞHH^[ØY™[™\™ŞHÈ[X™\Š^[ØY™[™\™ŞJHˆ[Âˆ	
-ˆÙ›Ü›K[Y\ÜØYÙHŠK^ÛÛ[H”Ø]š[™ø )ˆÂˆHÂˆ]ØZ]™\]Y\İ
-Y][™Ñ[RYÈØ\KÙ[šY\ËÉÙY][™Ñ[RYXˆ‹Ø\KÙ[šY\È‹ÛY]ÙˆY][™Ñ[RYÈ”Uˆˆ”ÔÕ‹›ÙNˆ”ÓÓ‹œİš[™ÚYJ^[ØY
-_JNÂˆÛÛœİÙÙÙY]HH^[ØY™^NÂˆ›Ü›Kœ™\Ù]
+function localDateString(date) {
+  const local = new Date(date.getTime() - date.getTimezoneOffset() * 60000);
+  return local.toISOString().slice(0, 10);
+}
 
-NÂˆY][™Ñ[RYH[ÂˆYØXŞSZ[]\ÓÛ‘Y]H[Âˆ\˜][Û‘šY[ĞÚ[™ÙYH˜[ÙNÂˆ\]Q\˜][Û”™]šY]Ê
-NÂˆ›Ü›Kœ]Y\TÙ[XİÜŠ‹œš[X\KX]ÛˆŠKš[›™\’SH	ĞYÈ^HÙÈÜ[ˆ\šXKZY[HYH¸¡¥ÏÜÜ[‰ÎÂˆ	
-ˆØØ[˜Ù[YY]ŠKšY[ˆHYNÂˆ›Ü›K™[[Y[Ë™^K˜[YHHÙÙÙY]NÂˆİ]K™]HHÙÙÙY]NÂˆ	
-ˆÜ™]šY]ËY]HŠK˜[YHHÙÙÙY]NÂˆ	
-ˆÙ›Ü›K[Y\ÜØYÙHŠK^ÛÛ[HYYÈ[İ\ˆÙËˆÂˆ]ØZ]™Yœ™\Ú
+function formatMinutes(value) {
+  const minutes = Number(value || 0);
+  const hours = Math.floor(minutes / 60);
+  const remainder = minutes % 60;
+  if (hours && remainder) return `${hours}h ${remainder}m`;
+  if (hours) return `${hours}h`;
+  return `${remainder}m`;
+}
 
-NÂˆHØ]Ú
-\œ›ÜŠHÂˆ	
-ˆÙ›Ü›K[Y\ÜØYÙHŠK^ÛÛ[H\œ›Ü‹›Y\ÜØYÙNÂˆBŸJNÂ‚‰
-ˆØØ[˜Ù[YY]ŠK˜Y]™[\İ[™\Š˜ÛXÚÈ‹Ø[˜Ù[Y]
-NÂ‚‰
-ˆÙÛØ[Y›Ü›HŠK˜Y]™[\İ[™\ŠœİX›Z]‹\Ş[˜È
-]™[
-HOˆÂˆ]™[œ™]™[Y˜][
+function escapeXml(value) {
+  return String(value ?? "").replace(/[&<>"']/g, (character) => ({"&": "&amp;", "<": "&lt;", ">": "&gt;", '"': "&quot;", "'": "&apos;"}[character]));
+}
 
-NÂˆÛÛœİ›Ü›HH]™[˜İ\œ™[\™Ù]ÂˆÛÛœİ^[ØYHØš™Xİ™œ›ÛQ[šY\Ê™]È›Ü›Q]J›Ü›JK™[šY\Ê
-JNÂˆHÂˆÛÛœİ\™Ù]^\ÈH[X™\Š^[ØY\™Ù]Ù^\ÊNÂˆÛÛœİ™[XZ[š[™ÓZ[]\ÈHÛØÚÑ\˜][Û“Z[]\Ê^[ØY\™Ù]ØÛØÚÊNÂˆ^[ØY\™Ù]ÛZ[]\×İÙYZÈH\™Ù]^\È
-ˆM
-È™[XZ[š[™ÓZ[]\ÎÂˆYˆ
-S[X™\‹š\Ò[YÙ\Š\™Ù]^\ÊH\™Ù]^\È\™Ù]^\ÈˆÈ^[ØY\™Ù]ÛZ[]\×İÙYZÈH^[ØY\™Ù]ÛZ[]\×İÙYZÈˆL
-HÂˆ›İÈ™]È\œ›ÜŠÚÛÜÙHHÙYZÛH\™Ù]™]ÙY[ˆMHZ[]\È[™È[^\ËˆŠNÂˆBˆ[]H^[ØY\™Ù]Ù^\ÎÂˆ[]H^[ØY\™Ù]ØÛØÚÎÂˆ]ØZ]™\]Y\İ
-‹Ø\KÙÛØ[È‹ÛY]Ùˆ”ÔÕ‹›ÙNˆ”ÓÓ‹œİš[™ÚYJ^[ØY
-_JNÂˆ›Ü›Kœ™\Ù]
+function wrapCardText(value, maxCharacters) {
+  const words = String(value || "").split(/\s+/).filter(Boolean);
+  const lines = [];
+  let line = "";
+  for (const word of words) {
+    if (line && `${line} ${word}`.length > maxCharacters) {
+      lines.push(line);
+      line = word;
+    } else line = line ? `${line} ${word}` : word;
+  }
+  if (line) lines.push(line);
+  return lines.length ? lines : [""];
+}
 
-NÂˆ	
-ˆÙ›Ü›K[Y\ÜØYÙHŠK^ÛÛ[H”š[Üš]HYYˆ[İ\ˆİ[[X\šY\ÈÚ[\ÙH]\ÈÛÛ^ˆÂˆ]ØZ]™Yœ™\Ú
+function cardText(x, y, value, size = 16, color = "#1f302d", weight = 400) {
+  return `<text x="${x}" y="${y}" fill="${color}" font-family="Segoe UI,Arial,sans-serif" font-size="${size}" font-weight="${weight}" font-variant-numeric="lining-nums tabular-nums">${escapeXml(value)}</text>`;
+}
 
-NÂˆHØ]Ú
-\œ›ÜŠHÂˆ	
-ˆÙ›Ü›K[Y\ÜØYÙHŠK^ÛÛ[H\œ›Ü‹›Y\ÜØYÙNÂˆBŸJNÂ‚œ™Yœ™\Ú
+function buildExportCard(data) {
+  const width = 1100;
+  const margin = 52;
+  const inner = width - margin * 2;
+  const activities = data.activities || [];
+  const goals = data.goals || [];
+  const minutes = activities.reduce((sum, entry) => sum + Number(entry.minutes || 0), 0);
+  const days = new Set(activities.map((entry) => entry.day)).size;
+  const areas = new Set(activities.map((entry) => entry.category)).size;
+  const pieces = [];
+  let y = 0;
+  pieces.push(`<rect width="100%" height="100%" fill="#e8efe7"/><rect x="20" y="20" width="1060" height="${0}" rx="24" fill="#f3f7f1" stroke="#d9e3d8"/>`);
+  y = 78;
+  pieces.push(`<rect x="${margin}" y="48" width="40" height="40" rx="12" fill="#6f927f"/>`);
+  pieces.push(cardText(margin + 13, 77, "d", 29, "#ffffff", 800));
+  pieces.push(cardText(margin + 54, 76, "Daybook", 28, "#1f302d", 800));
+  pieces.push(cardText(width - margin, 72, `EXPORTED ${new Date().toLocaleDateString(undefined, {year: "numeric", month: "long", day: "numeric"}).toUpperCase()}`, 12, "#64756b", 700).replace(`x="${width - margin}"`, `x="${width - margin}" text-anchor="end"`));
+  y = 132;
+  pieces.push(cardText(margin, y, "YOUR PERSONAL ACTIVITY RECORD", 12, "#4f705e", 700));
+  y += 28;
+  pieces.push(cardText(margin, y, "Everything youâ€™ve logged, together in one place.", 22, "#1f302d", 600));
+  y += 42;
+  const stats = [["ACTIVITIES", `${activities.length}`], ["TIME LOGGED", formatMinutes(minutes)], ["DAYS WITH LOGS", `${days}`], ["AREAS", `${areas}`]];
+  const gap = 14;
+  const statWidth = (inner - gap * 3) / 4;
+  stats.forEach(([label, value], index) => {
+    const x = margin + index * (statWidth + gap);
+    pieces.push(`<rect x="${x}" y="${y}" width="${statWidth}" height="86" rx="12" fill="#f5f8f3" stroke="#e3e9df"/>`);
+    pieces.push(cardText(x + 16, y + 26, label, 10, "#64756b", 700));
+    pieces.push(cardText(x + 16, y + 61, value, 23, "#1f302d", 700));
+  });
+  y += 120;
+  pieces.push(cardText(margin, y, "YOUR PRIORITIES", 12, "#4f705e", 700));
+  y += 18;
+  if (!goals.length) {
+    pieces.push(cardText(margin, y + 17, "No priorities saved.", 14, "#64756b"));
+    y += 42;
+  } else {
+    for (const goal of goals) {
+      const rowHeight = 50;
+      pieces.push(`<rect x="${margin}" y="${y}" width="${inner}" height="${rowHeight}" rx="9" fill="#edf3eb" stroke="#d9e3d8"/>`);
+      pieces.push(cardText(margin + 14, y + 21, goal.title, 14, "#1f302d", 600));
+      pieces.push(cardText(margin + 14, y + 39, `${goal.category} Â· ${formatMinutes(goal.target_minutes_week)} per week`, 11, "#64756b"));
+      pieces.push(cardText(width - margin - 14, y + 29, `Priority #${goal.id}`, 10, "#64756b", 400).replace(`x="${width - margin - 14}"`, `x="${width - margin - 14}" text-anchor="end"`));
+      y += rowHeight + 7;
+    }
+    y += 10;
+  }
+  pieces.push(cardText(margin, y, "ACTIVITY LOG", 12, "#4f705e", 700));
+  y += 18;
+  if (!activities.length) {
+    pieces.push(cardText(margin, y + 17, "No activities logged yet.", 14, "#64756b"));
+    y += 42;
+  } else {
+    for (const entry of activities) {
+      const titleLines = wrapCardText(entry.title, 100);
+      const noteLines = entry.notes ? wrapCardText(entry.notes, 112) : [];
+      const details = [
+        `${entry.day}${entry.time ? ` Â· starts ${entry.time}` : " Â· no start time"}${entry.end_time ? ` Â· ends ${entry.end_time}` : " Â· no end time"} Â· ${formatMinutes(entry.minutes)} Â· ${entry.outcome || "Progress made"}${entry.energy ? ` Â· energy ${entry.energy}/5` : " Â· energy not rated"}`,
+        `Area: ${entry.category}`,
+        ...noteLines.map((line) => `Note: ${line}`),
+      ];
+      const rowHeight = 20 + titleLines.length * 18 + details.length * 18 + 10;
+      pieces.push(`<rect x="${margin}" y="${y}" width="${inner}" height="${rowHeight}" rx="9" fill="#edf3eb" stroke="#d9e3d8"/>`);
+      let lineY = y + 22;
+      for (const titleLine of titleLines) {
+        pieces.push(cardText(margin + 14, lineY, titleLine, 14, "#1f302d", 600));
+        lineY += 18;
+      }
+      for (const detail of details) {
+        pieces.push(cardText(margin + 14, lineY, detail, 11, "#64756b"));
+        lineY += 18;
+      }
+      pieces.push(cardText(width - margin - 14, y + 22, `Activity #${entry.id}`, 10, "#64756b", 400).replace(`x="${width - margin - 14}"`, `x="${width - margin - 14}" text-anchor="end"`));
+      y += rowHeight + 8;
+    }
+  }
+  y += 40;
+  pieces.push(cardText(margin, y, "Your Daybook data stays on this device.", 11, "#64756b"));
+  const height = y + 38;
+  pieces[0] = `<rect width="100%" height="100%" fill="#e8efe7"/><rect x="20" y="20" width="1060" height="${height - 40}" rx="24" fill="#f3f7f1" stroke="#d9e3d8"/>`;
+  return `<svg xmlns="http://www.w3.org/2000/svg" width="${width}" height="${height}" viewBox="0 0 ${width} ${height}">${pieces.join("")}</svg>`;
+}
 
-NÂœÙ]\\™XTXÚÙ\œÊ
-NÂœÙ]\İ[YÙ[XİÊ
-NÂ‚‰
-ˆÙ^Ü]šYÙÙ\ˆŠK˜Y]™[\İ[™\Š˜ÛXÚÈ‹Ü[‘^Ü™]šY]ÊNÂ‰
-ˆÙ^ÜXÛÜÙHŠK˜Y]™[\İ[™\Š˜ÛXÚÈ‹
+async function openExportPreview() {
+  const dialog = $("#export-dialog");
+  const preview = $("#export-card-preview");
+  const status = $("#export-status");
+  const download = $("#export-download");
+  download.disabled = true;
+  preview.hidden = true;
+  status.hidden = false;
+  status.textContent = "Preparing your cardâ€¦";
+  if (exportCardSvgUrl) URL.revokeObjectURL(exportCardSvgUrl);
+  dialog.showModal();
+  try {
+    exportCardData = await request("/api/export");
+    const svg = buildExportCard(exportCardData);
+    exportCardSvgUrl = URL.createObjectURL(new Blob([svg], {type: "image/svg+xml;charset=utf-8"}));
+    preview.onload = () => {
+      preview.hidden = false;
+      status.hidden = true;
+      download.disabled = false;
+    };
+    preview.onerror = () => {
+      status.textContent = "The preview couldnâ€™t be created. Please close it and try again.";
+    };
+    preview.src = exportCardSvgUrl;
+  } catch (error) {
+    status.textContent = error instanceof TypeError || /failed to fetch|networkerror/i.test(error.message)
+      ? "Daybook couldnâ€™t reach your saved data. Check that Daybook is running, then try again."
+      : error.message || "Daybook couldnâ€™t prepare the export. Please try again.";
+  }
+}
 
-HOˆ	
-ˆÙ^ÜYX[ÙÈŠK˜ÛÜÙJ
-JNÂ‰
-ˆÙ^ÜXØ[˜Ù[ŠK˜Y]™[\İ[™\Š˜ÛXÚÈ‹
+function elapsedMinutes(startTime, endTime) {
+  const toMinutes = (value) => {
+    const [hours, minutes] = value.split(":").map(Number);
+    return hours * 60 + minutes;
+  };
+  const difference = toMinutes(endTime) - toMinutes(startTime);
+  return difference < 0 ? difference + 1440 : difference;
+}
 
-HOˆ	
-ˆÙ^ÜYX[ÙÈŠK˜ÛÜÙJ
-JNÂ‰
-ˆÙ^ÜYİÛ›ØYŠK˜Y]™[\İ[™\Š˜ÛXÚÈ‹\Ş[˜È
+function clockDurationMinutes(value) {
+  if (!value) return 0;
+  const [hours, minutes] = value.split(":").map(Number);
+  return hours * 60 + minutes;
+}
 
-HOˆÂˆYˆ
-Y^ÜØ\™İ™Õ\›
-H™]\›ÂˆÛÛœİ]ÛˆH	
-ˆÙ^ÜYİÛ›ØYŠNÂˆÛÛœİİ]\ÈH	
-ˆÙ^Ü\İ]\ÈŠNÂˆ]Û‹™\ØX›YHYNÂˆHÂˆÛÛœİ[XYÙHH™]È[XYÙJ
-NÂˆ[XYÙKœÜ˜ÈH^ÜØ\™İ™Õ\›Âˆ]ØZ][XYÙK™XÛÙJ
-NÂˆÛÛœİØ[˜\ÈHØİ[Y[˜Ü™X]Q[[Y[
-˜Ø[˜\ÈŠNÂˆØ[˜\ËÚYH[XYÙK›˜]\˜[ÚYÂˆØ[˜\ËšZYÚH[XYÙK›˜]\˜[ZYÚÂˆØ[˜\Ë™Ù]ÛÛ^
-Œ™ŠK™˜]Ò[XYÙJ[XYÙK
-NÂˆÛÛœİ™ÈH]ØZ]™]È›ÛZ\ÙJ
-™\ÛÛ™JHOˆØ[˜\ËĞ›ØŠ™\ÛÛ™Kš[XYÙKÜ™ÈŠJNÂˆYˆ
-\™ÊH›İÈ™]È\œ›ÜŠ•HØ\™[XYÙH\ÈÛÈ\™ÙHÈİÛ›ØYˆH^Ü[™È™]Ù\ˆXİ]š]Y\È]H[YKˆŠNÂˆÛÛœİİÛ›ØY\›HT“˜Ü™X]SØš™XİT“
-™ÊNÂˆÛÛœİ[šÈHØİ[Y[˜Ü™X]Q[[Y[
-˜HŠNÂˆ[šËš™YˆHİÛ›ØY\›Âˆ[šË™İÛ›ØYH^X›ÛÚËXXİ]š]K\™XÛÜ™IÛ™]È]J
-KÒTÓÔİš[™Ê
-KœÛXÙJL
-_Kœ™ØÂˆ[šË˜ÛXÚÊ
-NÂˆÙ][Y[İ]
+function updateDurationPreview() {
+  const form = $("#activity-form");
+  const start = form.elements.time.value;
+  const end = form.elements.end_time.value;
+  const preview = $("#duration-result");
+  if (start && end) {
+    preview.textContent = formatMinutes(elapsedMinutes(start, end));
+  } else if (!durationFieldsChanged && legacyMinutesOnEdit !== null) {
+    preview.textContent = formatMinutes(legacyMinutesOnEdit);
+  } else {
+    preview.textContent = "â€”";
+  }
+}
 
+function formatDate(value, options = {month: "short", day: "numeric"}) {
+  return new Date(`${value}T12:00:00`).toLocaleDateString(undefined, options);
+}
 
-HOˆT“œ™]›ÚÙSØš™XİT“
-İÛ›ØY\›
-KL
-NÂˆHØ]Ú
-\œ›ÜŠHÂˆİ]\ËšY[ˆH˜[ÙNÂˆİ]\Ë^ÛÛ[H\œ›Ü‹›Y\ÜØYÙH•HØ\™Ûİ[¸ &]™HİÛ›ØYYˆX\ÙHHYØZ[‹ˆÂˆHš[˜[HÂˆ]Û‹™\ØX›YH˜[ÙNÂˆBŸJNÂ
+function daysBetween(start, end) {
+  const toUtcDay = (value) => {
+    const [year, month, day] = value.split("-").map(Number);
+    return Date.UTC(year, month - 1, day);
+  };
+  return Math.round((toUtcDay(end) - toUtcDay(start)) / 86400000) + 1;
+}
+
+function escapeText(value) {
+  return String(value ?? "");
+}
+
+async function request(url, options = {}) {
+  const response = await fetch(url, {headers: {"Content-Type": "application/json"}, ...options});
+  const payload = await response.json();
+  if (!response.ok) throw new Error(payload.error || "Something went wrong.");
+  return payload;
+}
+
+async function refresh() {
+  const params = new URLSearchParams({period: state.period, date: state.date});
+  try {
+    const summary = await request(`/api/summary?${params}`);
+    state.summary = summary;
+    renderSummary(summary);
+    await Promise.all([renderEntries(summary.start, summary.end), renderGoals()]);
+  } catch (error) {
+    $("#conclusion").textContent = error.message;
+  }
+}
+
+function renderSummary(summary) {
+  const stats = summary.stats;
+  const totalDays = daysBetween(summary.start, summary.end);
+  $("#period-range").textContent = summary.period === "day"
+    ? formatDate(summary.start, {weekday: "long", month: "long", day: "numeric"})
+    : summary.period === "year"
+      ? new Date(`${summary.start}T12:00:00`).getFullYear()
+      : `${formatDate(summary.start)} â€” ${formatDate(summary.end, {month: "short", day: "numeric", year: "numeric"})}`;
+  $("#recap-title").textContent = summary.period === "day" ? "Your day, in perspective" : `${summary.label} perspective`;
+  $("#entries-heading").textContent = summary.period === "day" ? "Todayâ€™s activity" : `${summary.label} activity`;
+  $("#metric-time").textContent = formatMinutes(stats.minutes);
+  $("#metric-time-note").textContent = `${Object.keys(stats.categories).length} ${Object.keys(stats.categories).length === 1 ? "area" : "areas"} tracked`;
+  $("#metric-activities").textContent = stats.activities;
+  $("#metric-completed").textContent = `${stats.completed} marked complete Â· ${stats.progress} progress made`;
+  $("#metric-days").textContent = `${stats.active_days} / ${totalDays}`;
+  $("#metric-days-note").textContent = summary.period === "day" ? (stats.active_days ? "At least one entry logged" : "No entry logged yet") : "days with at least one entry";
+  $("#metric-energy").textContent = stats.average_energy === null ? "â€”" : `${stats.average_energy} / 5`;
+  $("#conclusion").textContent = summary.conclusion;
+  renderHighlights(summary.highlights);
+  renderCategories(stats.categories);
+  renderSuggestions(summary.suggestions);
+}
+
+function renderHighlights(items) {
+  const container = $("#highlights");
+  container.replaceChildren();
+  if (!items.length) return;
+  const label = document.createElement("div");
+  label.className = "minor-heading";
+  label.textContent = "WHAT YOU LOGGED";
+  container.append(label);
+  for (const item of items) {
+    const row = document.createElement("div");
+    row.className = "highlight-row";
+    const icon = document.createElement("span");
+    icon.className = "highlight-icon";
+    icon.textContent = item.outcome === "completed" ? "âœ“" : item.outcome === "rest" ? "Â·" : "â†—";
+    const main = document.createElement("div");
+    const title = document.createElement("div");
+    title.className = "highlight-title";
+    title.textContent = escapeText(item.title);
+    main.append(title);
+    if (item.notes) {
+      const detail = document.createElement("div");
+      detail.className = "highlight-detail";
+      detail.textContent = escapeText(item.notes);
+      main.append(detail);
+    }
+    const meta = document.createElement("span");
+    meta.className = "highlight-meta";
+    meta.textContent = `${item.category} Â· ${formatMinutes(item.minutes)}`;
+    row.append(icon, main, meta);
+    container.append(row);
+  }
+}
+
+function renderCategories(categories) {
+  const container = $("#category-bars");
+  container.replaceChildren();
+  const rows = Object.entries(categories);
+  if (!rows.length) {
+    const empty = document.createElement("p");
+    empty.className = "empty-inline";
+    empty.textContent = "No activity has been logged in this period yet.";
+    container.append(empty);
+    return;
+  }
+  const max = Math.max(1, ...rows.map(([, minutes]) => minutes));
+  for (const [name, minutes] of rows) {
+    const row = document.createElement("div");
+    row.className = "category-row";
+    const title = document.createElement("span");
+    title.className = "category-name";
+    title.textContent = escapeText(name);
+    const track = document.createElement("div");
+    track.className = "bar-track";
+    const fill = document.createElement("div");
+    fill.className = "bar-fill";
+    fill.style.width = `${Math.max(2, minutes / max * 100)}%`;
+    track.append(fill);
+    const duration = document.createElement("span");
+    duration.className = "category-duration";
+    duration.textContent = formatMinutes(minutes);
+    row.append(title, track, duration);
+    container.append(row);
+  }
+}
+
+function renderSuggestions(items) {
+  const container = $("#suggestions");
+  container.replaceChildren();
+  for (const item of items) {
+    const card = document.createElement("article");
+    card.className = "suggestion";
+    const title = document.createElement("h3");
+    title.textContent = escapeText(item.title);
+    const reason = document.createElement("p");
+    reason.textContent = escapeText(item.reason);
+    card.append(title, reason);
+    container.append(card);
+  }
+}
+
+async function renderEntries(start, end) {
+  const payload = await request(`/api/entries?${new URLSearchParams({from: start, to: end})}`);
+  const container = $("#entry-list");
+  container.replaceChildren();
+  if (!payload.entries.length) {
+    const empty = document.createElement("p");
+    empty.className = "empty-inline";
+    empty.textContent = "Nothing logged for this period yet. Add an activity above whenever youâ€™re ready.";
+    container.append(empty);
+    return;
+  }
+  for (const entry of payload.entries) {
+    const row = document.createElement("article");
+    row.className = "entry-row";
+    const date = document.createElement("span");
+    date.className = "entry-date";
+    const timeRange = entry.time
+      ? `${entry.time}${entry.end_time ? `â€“${entry.end_time}` : ""}`
+      : (entry.end_time || "");
+    date.textContent = `${formatDate(entry.day)}${timeRange ? ` Â· ${timeRange}` : ""}`;
+    const main = document.createElement("div");
+    main.className = "entry-main";
+    const title = document.createElement("strong");
+    title.textContent = escapeText(entry.title);
+    main.append(title);
+    if (entry.notes) {
+      const notes = document.createElement("p");
+      notes.textContent = escapeText(entry.notes);
+      main.append(notes);
+    }
+    const category = document.createElement("span");
+    category.className = "entry-category";
+    category.textContent = escapeText(entry.category);
+    const duration = document.createElement("span");
+    duration.className = "entry-duration";
+    const durationValue = document.createElement("strong");
+    durationValue.textContent = formatMinutes(entry.minutes);
+    const sessionStatus = document.createElement("span");
+    sessionStatus.className = "entry-state";
+    sessionStatus.textContent = entry.end_time
+      ? "Session ended"
+      : (entry.outcome === "ongoing" ? "Task still in progress" : entry.outcome);
+    duration.append(durationValue, sessionStatus);
+    const actions = document.createElement("div");
+    actions.className = "entry-actions";
+    if (entry.time && !entry.end_time && entry.day === localDateString(new Date())) {
+      const endSession = document.createElement("button");
+      endSession.className = "end-session-button";
+      endSession.type = "button";
+      endSession.setAttribute("aria-label", `End session for ${entry.title} now`);
+      endSession.textContent = "End session";
+      endSession.addEventListener("click", async () => {
+        const now = new Date();
+        const endTime = `${String(now.getHours()).padStart(2, "0")}:${String(now.getMinutes()).padStart(2, "0")}`;
+        const updated = {...entry, end_time: endTime, minutes: elapsedMinutes(entry.time, endTime)};
+        endSession.disabled = true;
+        endSession.textContent = "Endingâ€¦";
+        try {
+          await request(`/api/entries/${entry.id}`, {method: "PUT", body: JSON.stringify(updated)});
+          await refresh();
+        } catch (error) {
+          endSession.disabled = false;
+          endSession.textContent = "End session";
+          $("#form-message").textContent = error.message;
+        }
+      });
+      actions.append(endSession);
+    }
+    const remove = document.createElement("button");
+    remove.className = "delete-entry";
+    remove.type = "button";
+    remove.setAttribute("aria-label", `Delete ${entry.title}`);
+    remove.textContent = "Ã—";
+    const edit = document.createElement("button");
+    edit.className = "edit-entry";
+    edit.type = "button";
+    edit.setAttribute("aria-label", `Edit ${entry.title}`);
+    edit.textContent = "Edit";
+    edit.addEventListener("click", () => {
+      const form = $("#activity-form");
+      for (const key of ["title", "category", "notes", "day", "time", "end_time", "outcome", "energy"]) {
+        form.elements[key].value = entry[key] ?? "";
+      }
+      form.querySelectorAll(".styled-select-native").forEach(syncStyledSelect);
+      legacyMinutesOnEdit = entry.end_time ? null : Number(entry.minutes || 0);
+      durationFieldsChanged = false;
+      updateDurationPreview();
+      editingEntryId = entry.id;
+      form.querySelector(".primary-button").innerHTML = 'Save changes <span aria-hidden="true">â†—</span>';
+      $("#cancel-edit").hidden = false;
+      $("#form-message").textContent = `Editing â€œ${entry.title}â€.`;
+      form.scrollIntoView({behavior: "smooth", block: "center"});
+      form.elements.title.focus();
+    });
+    actions.append(edit, remove);
+    remove.addEventListener("click", async () => {
+      if (!await confirmAction("Remove this activity?", `Remove â€œ${entry.title}â€ from your log?`)) return;
+      try {
+        await request(`/api/entries/${entry.id}`, {method: "DELETE"});
+        await refresh();
+      } catch (error) {
+        $("#form-message").textContent = error.message;
+      }
+    });
+    row.append(date, main, category, duration, actions);
+    container.append(row);
+  }
+}
+
+function cancelEdit() {
+  editingEntryId = null;
+  legacyMinutesOnEdit = null;
+  durationFieldsChanged = false;
+  const form = $("#activity-form");
+  form.reset();
+  updateDurationPreview();
+  form.elements.day.value = state.date;
+  form.querySelector(".primary-button").innerHTML = 'Add to my log <span aria-hidden="true">â†—</span>';
+  $("#cancel-edit").hidden = true;
+  $("#form-message").textContent = "Edit cancelled.";
+}
+
+async function renderGoals() {
+  const payload = await request("/api/goals");
+  const container = $("#goal-list");
+  container.replaceChildren();
+  if (!payload.goals.length) {
+    const empty = document.createElement("p");
+    empty.className = "empty-inline";
+    empty.textContent = "No goals yet. Add one to make suggestions personal.";
+    container.append(empty);
+    return;
+  }
+  for (const goal of payload.goals) {
+    const card = document.createElement("div");
+    card.className = "goal-item";
+    const heading = document.createElement("div");
+    heading.className = "goal-heading";
+    const title = document.createElement("strong");
+    title.textContent = escapeText(goal.title);
+    const remove = document.createElement("button");
+    remove.className = "delete-goal";
+    remove.type = "button";
+    remove.textContent = "Ã—";
+    remove.setAttribute("aria-label", `Remove priority ${goal.title}`);
+    remove.addEventListener("click", async () => {
+      if (!await confirmAction("Remove this priority?", `Remove â€œ${goal.title}â€ from your priorities?`)) return;
+      remove.disabled = true;
+      try {
+        await request(`/api/goals/${goal.id}`, {method: "DELETE"});
+        await refresh();
+      } catch (error) {
+        remove.disabled = false;
+        $("#form-message").textContent = error.message;
+      }
+    });
+    heading.append(title, remove);
+    const detail = document.createElement("span");
+    const summary = state.summary;
+    const days = summary ? daysBetween(summary.start, summary.end) : 7;
+    const expected = Math.round(goal.target_minutes_week * days / 7);
+    const actual = summary ? Object.entries(summary.stats.categories).reduce((total, [category, minutes]) => total + (category.toLowerCase() === goal.category.toLowerCase() ? minutes : 0), 0) : 0;
+    const periodName = summary?.period === "day" ? "today" : summary?.period === "month" ? "this month" : summary?.period === "year" ? "this year" : "this week";
+    detail.textContent = `${goal.category} Â· ${formatMinutes(actual)} of ~${formatMinutes(expected)} ${periodName}`;
+    const track = document.createElement("div");
+    track.className = "goal-track";
+    const fill = document.createElement("div");
+    fill.className = "goal-fill";
+    fill.style.width = `${expected ? Math.min(100, actual / expected * 100) : 0}%`;
+    track.append(fill);
+    card.append(heading, detail, track);
+    container.append(card);
+  }
+}
+
+document.querySelectorAll(".period-tab").forEach((button) => {
+  button.addEventListener("click", () => {
+    state.period = button.dataset.period;
+    document.querySelectorAll(".period-tab").forEach((tab) => tab.classList.toggle("active", tab === button));
+    refresh();
+  });
+});
+
+$("#review-date").value = state.date;
+$("#review-date").addEventListener("change", (event) => {
+  state.date = event.target.value || localDateString(new Date());
+  refresh();
+});
+
+$("#activity-form").elements.day.value = state.date;
+$("#activity-form").elements.time.value = `${String(new Date().getHours()).padStart(2, "0")}:${String(new Date().getMinutes()).padStart(2, "0")}`;
+for (const field of [$("#activity-form").elements.time, $("#activity-form").elements.end_time]) {
+  field.addEventListener("input", () => {
+    durationFieldsChanged = true;
+    updateDurationPreview();
+  });
+}
+$("#activity-form").addEventListener("submit", async (event) => {
+  event.preventDefault();
+  const form = event.currentTarget;
+  const data = new FormData(form);
+  const payload = Object.fromEntries(data.entries());
+  payload.minutes = payload.time && payload.end_time
+    ? elapsedMinutes(payload.time, payload.end_time)
+    : (!durationFieldsChanged && legacyMinutesOnEdit !== null ? legacyMinutesOnEdit : 0);
+  payload.energy = payload.energy ? Number(payload.energy) : null;
+  $("#form-message").textContent = "Savingâ€¦";
+  try {
+    await request(editingEntryId ? `/api/entries/${editingEntryId}` : "/api/entries", {method: editingEntryId ? "PUT" : "POST", body: JSON.stringify(payload)});
+    const loggedDate = payload.day;
+    form.reset();
+    editingEntryId = null;
+    legacyMinutesOnEdit = null;
+    durationFieldsChanged = false;
+    updateDurationPreview();
+    form.querySelector(".primary-button").innerHTML = 'Add to my log <span aria-hidden="true">â†—</span>';
+    $("#cancel-edit").hidden = true;
+    form.elements.day.value = loggedDate;
+    state.date = loggedDate;
+    $("#review-date").value = loggedDate;
+    $("#form-message").textContent = "Added to your log.";
+    await refresh();
+  } catch (error) {
+    $("#form-message").textContent = error.message;
+  }
+});
+
+$("#cancel-edit").addEventListener("click", cancelEdit);
+
+$("#goal-form").addEventListener("submit", async (event) => {
+  event.preventDefault();
+  const form = event.currentTarget;
+  const payload = Object.fromEntries(new FormData(form).entries());
+  try {
+    const targetDays = Number(payload.target_days);
+    const remainingMinutes = clockDurationMinutes(payload.target_clock);
+    payload.target_minutes_week = targetDays * 1440 + remainingMinutes;
+    if (!Number.isInteger(targetDays) || targetDays < 0 || targetDays > 7 || payload.target_minutes_week < 1 || payload.target_minutes_week > 10080) {
+      throw new Error("Choose a weekly target between 15 minutes and 7 full days.");
+    }
+    delete payload.target_days;
+    delete payload.target_clock;
+    await request("/api/goals", {method: "POST", body: JSON.stringify(payload)});
+    form.reset();
+    $("#form-message").textContent = "Priority added. Your summaries will use it as context.";
+    await refresh();
+  } catch (error) {
+    $("#form-message").textContent = error.message;
+  }
+});
+
+refresh();
+setupAreaPickers();
+setupStyledSelects();
+
+$("#export-trigger").addEventListener("click", openExportPreview);
+$("#export-close").addEventListener("click", () => $("#export-dialog").close());
+$("#export-cancel").addEventListener("click", () => $("#export-dialog").close());
+$("#export-download").addEventListener("click", async () => {
+  if (!exportCardSvgUrl) return;
+  const button = $("#export-download");
+  const status = $("#export-status");
+  button.disabled = true;
+  try {
+    const image = new Image();
+    image.src = exportCardSvgUrl;
+    await image.decode();
+    const canvas = document.createElement("canvas");
+    canvas.width = image.naturalWidth;
+    canvas.height = image.naturalHeight;
+    canvas.getContext("2d").drawImage(image, 0, 0);
+    const png = await new Promise((resolve) => canvas.toBlob(resolve, "image/png"));
+    if (!png) throw new Error("The card image is too large to download. Try exporting fewer activities at a time.");
+    const downloadUrl = URL.createObjectURL(png);
+    const link = document.createElement("a");
+    link.href = downloadUrl;
+    link.download = `daybook-activity-record-${new Date().toISOString().slice(0, 10)}.png`;
+    link.click();
+    setTimeout(() => URL.revokeObjectURL(downloadUrl), 1000);
+  } catch (error) {
+    status.hidden = false;
+    status.textContent = error.message || "The card couldnâ€™t be downloaded. Please try again.";
+  } finally {
+    button.disabled = false;
+  }
+});
