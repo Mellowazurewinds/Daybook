@@ -2,7 +2,7 @@
 
 **Daybook is a private progress tracker for your days.** Log what you did, what moved forward, how long it took, and—if you want—your energy. Daybook turns those entries into daily, weekly, monthly, and yearly recaps and suggests a next focus using the goals and patterns you actually recorded.
 
-The first version is local-first and uses only Python's standard library, SQLite, HTML, CSS, and JavaScript. Your log stays on this computer; the app does not require an account, a cloud service, or an AI API.
+The Windows app runs locally and stores its data in SQLite on this computer. The optional Cloudflare portfolio demo is a static build: activities and priorities are saved in each visitor’s browser storage, are not sent to a server, and do not sync with the Windows app or across browsers. No account or AI service is required.
 
 ## Run it
 
@@ -52,6 +52,12 @@ Suggestions are descriptive prompts, not diagnoses or judgments. Unlogged time r
 - `daybook/analytics.py` — period comparison, summaries, and pattern rules
 - `daybook/static/` — responsive interface
 - `docs/PRODUCT_PLAN.md` — scope, architecture, and milestones
+
+## Deploy the portfolio demo to Cloudflare
+
+This repository includes a Cloudflare Workers static-assets build. In Workers Builds, connect the `Mellowazurewinds/Daybook` GitHub repository, use `.` as the project root, set the build command to `python build_cloudflare.py`, and set the deploy command to `npx wrangler deploy`. The Worker name in `wrangler.jsonc` is `daybook`, so use `daybook` as the Cloudflare project name. New commits to the connected production branch trigger a deployment.
+
+The build prepares the site files in `public/`. The hosted demo uses browser-local storage and does not include the Python server, SQLite database, or Windows executable.
 
 ## Current limits
 
